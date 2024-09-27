@@ -1,6 +1,18 @@
 <?xml version='1.0' encoding='utf-8'?>
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
   <url>
+    <loc>https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/</loc>
+    <lastmod>2023-03-05</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
+    <loc>https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/</loc>
+    <lastmod>2023-07-01</lastmod>
+    <changefreq>weekly</changefreq>
+    <priority>0.8</priority>
+  </url>
+  <url>
     <loc>https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/</loc>
     <lastmod>2023-07-26</lastmod>
     <changefreq>weekly</changefreq>
@@ -19,20 +31,8 @@
     <priority>0.8</priority>
   </url>
   <url>
-    <loc>https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/</loc>
-    <lastmod>2023-03-05</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
     <loc>https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/</loc>
     <lastmod>2022-08-04</lastmod>
-    <changefreq>weekly</changefreq>
-    <priority>0.8</priority>
-  </url>
-  <url>
-    <loc>https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/</loc>
-    <lastmod>2023-07-01</lastmod>
     <changefreq>weekly</changefreq>
     <priority>0.8</priority>
   </url>
