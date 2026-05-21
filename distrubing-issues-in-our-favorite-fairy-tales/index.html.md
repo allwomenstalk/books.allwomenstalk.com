@@ -3,7 +3,7 @@ title: "5 Disturbing Realities of Our Favorite Fairy Tales ..."
 description: "Investment of Beauty is Dominant; Women Can Only Be Saved by Men; Marriage is the Eventual Prize; Lack of Diversity; Women Are Tied to Domestic Life; More ..."
 url: "https://books.allwomenstalk.com/distrubing-issues-in-our-favorite-fairy-tales/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 5 Disturbing Realities of Our Favorite  Fairy Tales ...
@@ -42,16 +42,16 @@ Another commonality in bedtime stories is that most of the time female character
 
 ## Related Posts
 
+- [short stories about memory](https://books.allwomenstalk.com/memory-a-short-story/)
 - [just me patsy](https://inspiration.allwomenstalk.com/my-life-by-just-paty/)
 - [different types of immigrants](https://lifestyle.allwomenstalk.com/different-types-of-immigrants/)
-- [What Youll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
-- [TV Shows Turning 20 in 2018 ...](https://movies.allwomenstalk.com/tv-shows-turning-20-in-2018/)
-- [The Longest Eclipse of the Century is Coming on Ju...](https://lifestyle.allwomenstalk.com/the-longest-eclipse-of-the-century-is-coming-on-july-27th/)
 - [The Last Time  by Anon ...](https://parenting.allwomenstalk.com/the-last-time-by-anon/)
+- [TV Shows Turning 20 in 2018 ...](https://movies.allwomenstalk.com/tv-shows-turning-20-in-2018/)
 - [Dingo on the Plains by Aaron Solomon ...](https://inspiration.allwomenstalk.com/dingo-on-the-plains-by-aaron-solomon/)
-- [short stories about memory](https://books.allwomenstalk.com/memory-a-short-story/)
 - [A Cure for Chaos ...](https://parenting.allwomenstalk.com/a-cure-for-chaos/)
+- [The Longest Eclipse of the Century is Coming on Ju...](https://lifestyle.allwomenstalk.com/the-longest-eclipse-of-the-century-is-coming-on-july-27th/)
 - [Social Reforms in Saudi Arabia ...](https://lifestyle.allwomenstalk.com/social-reforms-in-saudi-arabia/)
+- [What Youll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Funny Confessions of a Werewolf ...](https://twilight.allwomenstalk.com/5-funny-confessions-of-a-werewolf/)
 

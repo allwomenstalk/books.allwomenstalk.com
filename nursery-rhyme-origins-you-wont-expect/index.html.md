@@ -3,7 +3,7 @@ title: "7 Nursery Rhyme Origins You Wont Expect ..."
 description: "Goosey Goosey Gander; Mary Mary Quite Contrary; Rock-a-Bye Baby; Little Miss Muffet; Three Blind Mice; More ..."
 url: "https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Nursery Rhyme Origins You Wont Expect ...
@@ -42,15 +42,15 @@ Nursery rhymes have many origins you don’t expect, although there are many rum
 
 ## Related Posts
 
-- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
 - [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
 - [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
 - [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)

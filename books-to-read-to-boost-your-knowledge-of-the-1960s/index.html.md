@@ -3,7 +3,7 @@ title: "7 Books to Read to Boost Your Knowledge of the 1960s ..."
 description: "A Piece of My Heart; The Tunnels of Cu Chi; Civilities and Civil Rights; Lunch at the 5 and 10; Underground: My Life with SDS and the Weathermen; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Books to Read to Boost Your Knowledge of the 1960s ...
@@ -56,16 +56,16 @@ If you are interested in learning more about the history of the 1960s, these are
 
 ## Related Posts
 
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
 - [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [10 Holiday Must Reads ...](https://allwomenstalk.com/10-holiday-must-reads/)
 

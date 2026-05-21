@@ -3,7 +3,7 @@ title: "17 Music Memoirs to Put on Your Reading List ..."
 description: "Rat Girl by Kristin Hersh; Just Kids by Patti Smith; Cash by Johnny Cash; Coal Miner’s Daughter by Loretta Lynn; Life by Keith Richards; More ..."
 url: "https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 17 Music Memoirs to Put on Your Reading List ...
@@ -132,15 +132,15 @@ An amazing read, even if you aren't a music fan in any genre at all.
 ## Related Posts
 
 - [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
 - [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [10 Holiday Must Reads ...](https://allwomenstalk.com/10-holiday-must-reads/)
 

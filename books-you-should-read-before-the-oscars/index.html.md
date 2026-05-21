@@ -3,7 +3,7 @@ title: "7 Books You Should Read before the Oscars ..."
 description: "Brooklyn, by Colm Toibin; Room, by Emma Donoghue; The Big Short, by Michael Lewis; The Revenant, by Michael Punke; Carol, by Patricia Highsmith; More ..."
 url: "https://books.allwomenstalk.com/books-you-should-read-before-the-oscars/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Books You Should Read before the Oscars ...
@@ -51,14 +51,14 @@ Have your read any of these books or seen their movies?
 
 - [great long books](https://books.allwomenstalk.com/long-novels-thatll-keep-you-immersed-in-the-story/)
 - [Look out for These Book to Movie Adaptations in 20...](https://bilbr.com/look-out-for-these-book-to-movie-adaptations-in/)
-- [The Best Books of Poetry to Pick up ...](https://books.allwomenstalk.com/the-best-books-of-poetry-to-pick-up/)
-- [10 Books You Must Read  if Youve Lost a Loved One ...](https://books.allwomenstalk.com/books-to-read-if-youve-lost-a-loved-one/)
-- [paris color riche le stylo shadow garnet](https://books.allwomenstalk.com/this-infographic-will-tell-you-what-to-read-next/)
-- [paris riche le stylo violet amour](https://lifestyle.allwomenstalk.com/beautiful-pieces-of-3d-artwork-made-from-books/)
-- [riche le stylo smoky shadow primped previous](https://books.allwomenstalk.com/see-how-many-of-these-reading-challenges-you-can-complete/)
-- [7 Unbelievable YA Books That Came out This Februar...](https://books.allwomenstalk.com/unbelievable-ya-books-that-came-out-this-february/)
 - [books set in the south](https://books.allwomenstalk.com/books-that-will-immerse-you-in-the-south/)
+- [7 Unbelievable YA Books That Came out This Februar...](https://books.allwomenstalk.com/unbelievable-ya-books-that-came-out-this-february/)
 - [The Best New Books to Read in April of 2016 ...](https://books.allwomenstalk.com/the-best-new-books-to-read-in-april-of/)
+- [10 Books You Must Read  if Youve Lost a Loved One ...](https://books.allwomenstalk.com/books-to-read-if-youve-lost-a-loved-one/)
+- [The Best Books of Poetry to Pick up ...](https://books.allwomenstalk.com/the-best-books-of-poetry-to-pick-up/)
+- [paris color riche le stylo shadow garnet](https://books.allwomenstalk.com/this-infographic-will-tell-you-what-to-read-next/)
+- [riche le stylo smoky shadow primped previous](https://books.allwomenstalk.com/see-how-many-of-these-reading-challenges-you-can-complete/)
+- [paris riche le stylo violet amour](https://lifestyle.allwomenstalk.com/beautiful-pieces-of-3d-artwork-made-from-books/)
 - [7 Books That Should Be Movies ...](https://movies.allwomenstalk.com/books-that-should-be-movies/)
 - [7 War Movies That You Cant Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 

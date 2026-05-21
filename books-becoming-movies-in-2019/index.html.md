@@ -3,7 +3,7 @@ title: "10 AWESOME Books THAT ARE Becoming Movies ..."
 description: "The Rhythm Section by Mark Burnell; The Knife of Never Letting Go by Patrick Ness; Where’d You Go, Bernadette by Maria Semple; Pet Sematary by Stephen King; Artemis Fowl by Eoin Colfer; More ..."
 url: "https://books.allwomenstalk.com/books-becoming-movies-in-2019/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 10 AWESOME Books THAT ARE Becoming Movies ...
@@ -69,15 +69,15 @@ amazon.com_
 ## Related Posts
 
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
-- [Summer Reading: Im Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
-- [Summer Reading: Cupcakes](https://allwomenstalk.com/summer-reading-cupcakes/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
+- [Summer Reading: Cupcakes](https://allwomenstalk.com/summer-reading-cupcakes/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [Summer Reading: Im Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

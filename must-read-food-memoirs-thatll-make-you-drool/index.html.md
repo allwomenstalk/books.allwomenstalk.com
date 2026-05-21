@@ -3,7 +3,7 @@ title: "Must-Read Food Memoirs Thatll Make You Drool ..."
 description: "\"My Life in France\" by Julia Child; \"Delancey\" by Molly Wizenberg; \"the Devil in the Kitchen\" by Marco Pierre White; \"Miriam’s Kitchen\" by Elizabeth Ehrlich; \"Toast\" by Nigel Slater; More ..."
 url: "https://books.allwomenstalk.com/must-read-food-memoirs-thatll-make-you-drool/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Must\-Read Food Memoirs Thatll Make You Drool ...
@@ -70,16 +70,16 @@ Which of these tasty memoirs has you licking your lips?
 
 ## Related Posts
 
+- [things to do with new potatoes](https://food.allwomenstalk.com/here-are-the-best-things-to-cook-with-new-potatoes-right-now/)
 - [beef cuts cheat sheet](https://food.allwomenstalk.com/cheat-sheet-infographics-to-turn-you-into-a-star-chef/)
 - [best bbq in town](https://food.allwomenstalk.com/how-to-host-the-best-bbq-your-neighborhood-has-ever-seen/)
-- [whats condiments](https://food.allwomenstalk.com/use-them-up-fun-things-to-make-with-the-condiments-in-your-fridge/)
-- [things to do with new potatoes](https://food.allwomenstalk.com/here-are-the-best-things-to-cook-with-new-potatoes-right-now/)
-- [moroccan food menu](https://food.allwomenstalk.com/this-is-why-you-should-make-moroccan-food-for-dinner-tonight/)
-- [kabob ideas](https://food.allwomenstalk.com/rock-your-next-bbq-with-these-kabob-recipes/)
-- [emeril lobster mac and cheese](https://food.allwomenstalk.com/creamy-dreamy-gourmet-recipes-for-mac-and-cheese/)
-- [japanese beetroot recipe](https://food.allwomenstalk.com/thought-you-hated-beets-these-decadent-recipes-are-sure-to-change-your-mind/)
-- [picnic salads without mayonnaise](https://food.allwomenstalk.com/mayo-free-salads-to-rock-all-your-backyard-picnics/)
 - [recipes using gnocchi](https://food.allwomenstalk.com/gnocchi-recipes-that-will-make-you-swoon/)
+- [picnic salads without mayonnaise](https://food.allwomenstalk.com/mayo-free-salads-to-rock-all-your-backyard-picnics/)
+- [moroccan food menu](https://food.allwomenstalk.com/this-is-why-you-should-make-moroccan-food-for-dinner-tonight/)
+- [emeril lobster mac and cheese](https://food.allwomenstalk.com/creamy-dreamy-gourmet-recipes-for-mac-and-cheese/)
+- [kabob ideas](https://food.allwomenstalk.com/rock-your-next-bbq-with-these-kabob-recipes/)
+- [whats condiments](https://food.allwomenstalk.com/use-them-up-fun-things-to-make-with-the-condiments-in-your-fridge/)
+- [japanese beetroot recipe](https://food.allwomenstalk.com/thought-you-hated-beets-these-decadent-recipes-are-sure-to-change-your-mind/)
 - [7 Delicious Cookie Recipes You Wont Be Able to Res...](https://baking.allwomenstalk.com/delicious-cookie-recipes-you-wont-be-able-to-resist/)
 - [20 Delectable Cuisines of the World to Tickle Your...](https://food.allwomenstalk.com/cuisines-of-the-world/)
 

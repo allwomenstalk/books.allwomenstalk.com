@@ -3,7 +3,7 @@ title: "7 Novels Written by Anthony Trollope That Will Take You Back in Time ...
 description: "Miss Mackenzie; Ayala’s Angel; The Belton Estate; An Old Man’s Love; The Claverings; More ..."
 url: "https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Novels Written by Anthony Trollope That Will Take You Back in Time ...
@@ -70,16 +70,16 @@ Anthony Trollope was an extremely talented author whose novels have stood the te
 
 ## Related Posts
 
-- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
+- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
+- [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
 - [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
 - [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
-- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
-- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
-- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
-- [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [7 Must Read Literary Classics ...](https://allwomenstalk.com/7-must-read-literary-classics/)
 

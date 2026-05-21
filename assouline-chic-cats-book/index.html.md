@@ -3,7 +3,7 @@ title: "Step Into the World of Assoulines Chic Cats and Discover..."
 description: "The Essence of “Chic Cats”; Captivating Imagery and Stories; A Collector’s Dream; Share Your Feline Fascination; More ..."
 url: "https://books.allwomenstalk.com/assouline-chic-cats-book/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Step Into the World of Assoulines Chic Cats and Discover...

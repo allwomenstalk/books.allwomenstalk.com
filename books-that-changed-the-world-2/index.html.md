@@ -3,7 +3,7 @@ title: "12 Books That Changed the World ..."
 description: "The Diary of Anne Frank by Anne Frank; The Diary of Samuel Pepys by Samuel Pepys; Harry Potter and the Philosopher’s Stone by J.K. Rowling; Aesop’s Fables by Aesop; To Kill a Mockingbird by Harper Lee; More ..."
 url: "https://books.allwomenstalk.com/books-that-changed-the-world-2/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 12 Books That Changed the World ...
@@ -90,16 +90,16 @@ Whether you like it or not, Fifty Shades definitely changed the world! It made e
 
 ## Related Posts
 
-- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [Summer Reading: Im Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
-- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
 - [Summer Reading: Cupcakes](https://allwomenstalk.com/summer-reading-cupcakes/)
+- [Summer Reading: Im Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [5 Facts on 2012 ...](https://twilight.allwomenstalk.com/facts-on/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 

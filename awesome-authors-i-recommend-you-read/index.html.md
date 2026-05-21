@@ -3,7 +3,7 @@ title: "7 Awesome Authors I Recommend You Read ..."
 description: "Augusten Burroughs; John Green; Margaret Atwood; Gillian Flynn; Sophie Kinsella; More ..."
 url: "https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Awesome Authors I Recommend You Read ...
@@ -56,16 +56,16 @@ There are a lot of great authors out there, it's hard to choose just seven to wr
 
 ## Related Posts
 
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
-- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Underrated Authors Youll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 

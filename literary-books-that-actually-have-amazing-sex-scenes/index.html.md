@@ -3,7 +3,7 @@ title: "Wonderful Books That Also Have Amazing Sex Scenes ..."
 description: "Delta of Venus by Anaïs Nin; The Garden of Eden by Ernest Hemingway; Endless Love by Scott Spencer; Chelsea Girls by Eileen Myles; Tampa by Alissa Nutting; More ..."
 url: "https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # Wonderful Books That Also Have Amazing Sex Scenes ...
@@ -70,16 +70,16 @@ What's the best sex scene you've ever read?
 
 ## Related Posts
 
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
 - [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
+- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
 - [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
-- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 

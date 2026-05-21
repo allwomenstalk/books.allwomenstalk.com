@@ -3,7 +3,7 @@ title: "7 Famous Authors Who Were Rejected and Finally Made It Big ..."
 description: "J.K. Rowling; Harper Lee; Shel Silverstein; Lucy Maud Montgomery; Herman Melville; More ..."
 url: "https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Famous Authors Who Were Rejected and Finally Made It Big ...
@@ -70,15 +70,15 @@ The biggest inspiration that you can take from this list is the fact that none o
 
 ## Related Posts
 
-- [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
-- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
 - [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
 - [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
-- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
 - [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
+- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
+- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
+- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
 - [8 Inspirational Personalities Who Have Overcome th...](https://celebs.allwomenstalk.com/8-inspirational-personalities-who-have-overcome-the-odds/)
 - [8 Child Stars Who Achieved Adult Success ...](https://allwomenstalk.com/8-child-stars-who-achieved-adult-success/)

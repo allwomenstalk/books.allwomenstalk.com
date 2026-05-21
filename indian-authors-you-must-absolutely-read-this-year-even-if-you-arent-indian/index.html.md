@@ -3,7 +3,7 @@ title: "7 Indian Authors You Must Absolutely Read This Year Even if You Arent In
 description: "Jhumpa Lahiri; Amitav Ghosh; Vikram Seth; Rabindranath Tagore; Devdutt Pattanaik; More ..."
 url: "https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/"
 category: "books"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Indian Authors You Must Absolutely Read This Year Even if You Arent Indian ...
@@ -56,16 +56,16 @@ If you’re fond of reading and like to expand your horizons by reading varied g
 
 ## Related Posts
 
-- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
-- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
-- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
-- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
 - [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
 - [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
-- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
-- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
+- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
+- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
+- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
 - [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
+- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 
