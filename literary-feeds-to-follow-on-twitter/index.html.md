@@ -3,7 +3,7 @@ title: "9 Literary Feeds You Need to Follow on Twitter ..."
 description: "@MaudNewton; @Litchat; @guardianbooks; @Disneywords; @Electriclit; More ..."
 url: "https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Literary Feeds You Need to Follow on Twitter ...
@@ -50,16 +50,16 @@ Have you got some favorite Twitter feeds for book lovers to share?
 
 ## Related Posts
 
-- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
-- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 - [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [5 Gastro-Terrific Posts to BlogStalk...](https://allwomenstalk.com/5-gastro-terrific-posts-to-blogstalk/)
 - [17 Best Lifestyle Blogs ...](https://allwomenstalk.com/7-best-lifestyle-blogs/)
 

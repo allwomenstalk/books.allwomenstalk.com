@@ -3,7 +3,7 @@ title: "7 Enjoyable Childrens Books by Eric Carle ..."
 description: "A Very Hungry Caterpillar; Rooster's off to See the World; Papa, Please Get the Moon for Me; Pancakes! Pancakes!; A House for Hermit Crab; More ..."
 url: "https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Enjoyable Childrens Books by Eric Carle ...
@@ -63,16 +63,16 @@ What other books by Eric Carle do you like? Do you like other authors of childre
 
 ## Related Posts
 
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
 - [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
 - [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
-- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
 - [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Books for Your Childs Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 

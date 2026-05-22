@@ -3,7 +3,7 @@ title: "3 Books to Read if Youre Thinking of Quitting Your Job ..."
 description: "Start It up. Why Running Your Own Business is Easier than You Think by Luke Johnson; One Minute Millionaire by Mark Victor Hansen; The Big Leap: Conquer Your Hidden Fear and Take Life to the Next Level by Hendricks Gay; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 3 Books to Read if Youre Thinking  of Quitting Your Job ...

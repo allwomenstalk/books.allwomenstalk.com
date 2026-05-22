@@ -3,7 +3,7 @@ title: "7 Fascinating True Crime Books to Add to Your Reading List ..."
 description: "In Cold Blood by Truman Capote; The Stranger beside Me by Ann Rule; Portrait of a Killer: Jack the Ripper – Case Closed by Patricia Cornwell; Helter Skelter by Vincent Bugliosi with Curt Gentry; Devil’s Knot: the True Story of the West Memphis Three by Mara Leveritt; More ..."
 url: "https://books.allwomenstalk.com/fascinating-true-crime-books-to-add-to-your-reading-list/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Fascinating True Crime Books to Add to Your Reading List ...
@@ -57,15 +57,15 @@ True crime books are great to add to your reading list. While they do entertain 
 ## Related Posts
 
 - [7 Unique Books Thatll Change Your View on Storytel...](https://books.allwomenstalk.com/unique-books-thatll-change-your-view-on-storytelling/)
-- [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
-- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
 - [7 Great Literary Classics Everyone Should Read at ...](https://books.allwomenstalk.com/great-literary-classics-everyone-should-read-at-least-once/)
-- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
-- [7 Hair-Raising Books That Terrified Your Younger S...](https://books.allwomenstalk.com/hair-raising-books-that-terrified-your-younger-self/)
-- [7 of the Best Christian Books on Marriage I Have H...](https://books.allwomenstalk.com/of-the-best-christian-books-on-marriage-i-have-had-the-pleasure-of-reading/)
 - [7 Fascinating Autobiographies with Compelling Tale...](https://books.allwomenstalk.com/fascinating-autobiographies-with-compelling-tales-youve-got-to-read/)
-- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
+- [7 Hair-Raising Books That Terrified Your Younger S...](https://books.allwomenstalk.com/hair-raising-books-that-terrified-your-younger-self/)
 - [john kennedy otoole](https://books.allwomenstalk.com/authors-who-only-wrote-one-book-but-oh-what-books/)
+- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
+- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
+- [7 of the Best Christian Books on Marriage I Have H...](https://books.allwomenstalk.com/of-the-best-christian-books-on-marriage-i-have-had-the-pleasure-of-reading/)
+- [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
+- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
 - [7 Shockingly True Crime Documentaries ...](https://movies.allwomenstalk.com/shockingly-true-crime-documentaries/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

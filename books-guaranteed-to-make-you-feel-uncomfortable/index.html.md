@@ -3,7 +3,7 @@ title: "7 Books Guaranteed to Make You Feel Uncomfortable ..."
 description: "Eat My Heart out by Zoe Pilger; Tampa by Alissa Nutting; The End of Alice by a M Homes; Guts by Chuck Palahnuik; The Wasp Factory by Iain Banks; More ..."
 url: "https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Books Guaranteed to Make You Feel Uncomfortable ...
@@ -56,15 +56,15 @@ So, I'm not suggesting you take any of those on your summer holidays this year. 
 
 ## Related Posts
 
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
+- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
 - [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
 - [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
 - [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
 - [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
-- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
-- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
 - [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 - [7 Books I Couldnt Stand ...](https://allwomenstalk.com/7-books-i-couldnt-stand/)

@@ -3,7 +3,7 @@ title: "7 Female Journalists from the past and Present ..."
 description: "Nellie Bly; Djuna Barnes; Sylvia Pankhurst; Christina Lamb; Mary McCarthy; More ..."
 url: "https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Female Journalists from the past and Present ...
@@ -56,16 +56,16 @@ These are just a few of the wonderful female writers from the past and present w
 
 ## Related Posts
 
-- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
-- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
-- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
-- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
 - [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
-- [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
-- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
-- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
 - [female mom remember](https://lifestyle.allwomenstalk.com/wonderful-women-to-remember-on-mothers-day/)
+- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
+- [famous fictional women](https://inspiration.allwomenstalk.com/of-the-best-fictional-heroines/)
+- [female 80s rock stars](https://music.allwomenstalk.com/amazing-rocker-chicks-from-the-80s/)
+- [oporah winfrey](https://inspiration.allwomenstalk.com/successful-women-to-inspire-you-in-your-career/)
 - [protective animal mothers](https://parenting.allwomenstalk.com/truly-admirable-mothers-in-the-animal-kingdom/)
+- [current blues guitarists](https://music.allwomenstalk.com/amazing-female-blues-guitarists-you-have-to-hear/)
+- [saturday night live armpits](https://celebs.allwomenstalk.com/hilarious-ladies-from-saturday-night-live/)
+- [female serial killers in the 1800s](https://lifestyle.allwomenstalk.com/freakiest-female-serial-killers/)
 - [7 Most Influential Women of the Last Decade ...](https://celebs.allwomenstalk.com/7-most-influential-women-of-the-last-decade/)
 - [10 Influential Women Throughout History ...](https://lifestyle.allwomenstalk.com/influential-women-throughout-history/)
 

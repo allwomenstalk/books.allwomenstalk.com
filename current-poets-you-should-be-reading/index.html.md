@@ -3,7 +3,7 @@ title: "5 Current Poets You Should Be Reading ASAP ..."
 description: "Neil Hilborn; Sabrina Benaim; TB LaBerge; Rupi Kaur; Olivia Gatwood; More ..."
 url: "https://books.allwomenstalk.com/current-poets-you-should-be-reading/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Current Poets You Should Be Reading ASAP  ...
@@ -38,15 +38,15 @@ Raised in both New Mexico and Trinidad, Gatwood is an active member of the slam 
 
 ## Related Posts
 
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
+- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
 - [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
 - [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
 - [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
-- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
+- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
 - [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

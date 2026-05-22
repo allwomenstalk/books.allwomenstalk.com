@@ -3,7 +3,7 @@ title: "7 Amazing Books about Cats ..."
 description: "Jennie (Paul Gallico); The Cat Who Came in from the Cold (Deric Longden); A Street Cat Named Bob (James Bowen); Dewey the Library Cat (Vicki Myron); Tailchaser's Song (Tad Williams); More ..."
 url: "https://books.allwomenstalk.com/amazing-books-about-cats/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Amazing Books about Cats ...
@@ -56,16 +56,16 @@ Cats make wonderful subjects for books of all types. I just can't read enough fe
 
 ## Related Posts
 
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
 - [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

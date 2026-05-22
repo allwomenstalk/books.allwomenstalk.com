@@ -3,7 +3,7 @@ title: "7 Hysterical Picture Books for Adults ..."
 description: "If You Give a Kid a Cookie, Will He Shut the F up?: a Parody for Adults by Marcy Roznick; Do You Want to Play with My Balls? by the Cifaldi Brothers; K is for Knifeball: an Alphabet of Terrible Advice by Avery Monsen and Jory John; You Have to Fking Eat by Adam Mansbach; Pat the Zombie: a Cruel (Adult) Spoof by Aaron Ximm; More ..."
 url: "https://books.allwomenstalk.com/hysterical-picture-books-for-adults/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Hysterical Picture Books for Adults ...
@@ -72,16 +72,16 @@ Have you ever read a picture book meant for adults?
 
 ## Related Posts
 
-- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
+- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
+- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
 - [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
-- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
 - [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 

@@ -3,7 +3,7 @@ title: "8 Books Every College Student Should Read ..."
 description: "The Alchemist by Paulo Coehlo; A New Earth by Eckhart Tolle; Wild by Cheryl Strayed; Never Let Me Go by Kazuo Ishiguro; The Rules of Attraction by Brett Easton Ellis; More ..."
 url: "https://books.allwomenstalk.com/books-every-college-student-should-read/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 8 Books Every College Student Should Read ...
@@ -65,13 +65,13 @@ Buy link: [amazon.com](https://www.amazon.com/Eat-Pray-Love-Everything-Indonesia
 
 ## Related Posts
 
+- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
-- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)

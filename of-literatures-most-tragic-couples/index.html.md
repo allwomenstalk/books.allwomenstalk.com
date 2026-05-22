@@ -3,7 +3,7 @@ title: "7 of Literatures Most Tragic Couples ..."
 description: "Heathcliff and Catherine; Anna Karenina and Count Vronsky; Willoughby and Marianne Dashwood; Brokeback Mountain; The Hunchback of Notre Dame; More ..."
 url: "https://books.allwomenstalk.com/of-literatures-most-tragic-couples/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 of Literatures Most Tragic Couples ...
@@ -42,16 +42,16 @@ Whatever you're doing this Valentine's Day, remember that you could be haunting 
 
 ## Related Posts
 
-- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
 - [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
+- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
+- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
 - [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
-- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
 - [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
-- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 - [7 of the Best Love Letters Ever Written ...](https://allwomenstalk.com/7-of-the-best-love-letters-ever-written/)
 

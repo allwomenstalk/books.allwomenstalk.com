@@ -3,7 +3,7 @@ title: "7 Tom Sharpe Novels That Will Put a Smile on Your Face ..."
 description: "Porterhouse Blue; Blott on the Landscape; Riotous Assembly; Indecent Exposure; Wilt; More ..."
 url: "https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Tom Sharpe Novels That Will Put a Smile on Your Face ...
@@ -70,16 +70,16 @@ If you’re looking for a new author to try, please give Tom Sharpe a go. He mig
 
 ## Related Posts
 
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
-- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
-- [yoga for womens health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
 - [alligator spaghetti childrens book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
+- [yoga for womens health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

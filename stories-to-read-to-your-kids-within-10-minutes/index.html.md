@@ -3,7 +3,7 @@ title: "7 Stories to Read to Your Kids within 10 Minutes ..."
 description: "Where the Wild Things Are; The Giving Tree; The Very Hungry Caterpillar; Once upon a Potty; Good Night Moon; More ..."
 url: "https://books.allwomenstalk.com/stories-to-read-to-your-kids-within-10-minutes/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Stories to Read to Your Kids within 10 Minutes ...
@@ -64,16 +64,16 @@ What do you think of these books? Any more children book suggestions that I can 
 
 ## Related Posts
 
-- [how to become a young author](https://books.allwomenstalk.com/ways-to-encourage-a-young-writer/)
-- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
 - [kid cudio](https://parenting.allwomenstalk.com/ways-to-deal-with-your-kids-tantrums/)
-- [dr suess decorations](https://parenting.allwomenstalk.com/totally-great-dr-seuss-things-to-share-with-your-kids/)
+- [open house survey questions](https://parenting.allwomenstalk.com/questions-to-ask-your-childs-teacher-at-open-house/)
+- [how to become a young author](https://books.allwomenstalk.com/ways-to-encourage-a-young-writer/)
 - [childhood stuff](https://lifestyle.allwomenstalk.com/childhood-mementos-you-should-keep/)
 - [shopping](https://parenting.allwomenstalk.com/of-the-best-tips-for-shopping-with-children/)
-- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
-- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
 - [how much should i charge my son for rent](https://parenting.allwomenstalk.com/tips-to-help-you-decide-how-much-rent-to-charge-your-kids/)
+- [dr suess decorations](https://parenting.allwomenstalk.com/totally-great-dr-seuss-things-to-share-with-your-kids/)
 - [schools for troubled teens near me](https://parenting.allwomenstalk.com/tips-for-when-you-feel-your-child-doesnt-need-you-any-more/)
+- [potty training books](https://parenting.allwomenstalk.com/great-potty-training-books-your-child-will-enjoy/)
+- [why do we need to listen to our parents](https://teen.allwomenstalk.com/reasons-to-listen-to-your-parents/)
 - [7 Books for Your Childs Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Games to Keep Your Children Active ...](https://allwomenstalk.com/7-games-to-keep-your-children-active/)
 

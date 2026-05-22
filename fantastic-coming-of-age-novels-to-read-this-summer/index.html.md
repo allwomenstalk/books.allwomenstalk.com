@@ -3,7 +3,7 @@ title: "7 Fantastic Coming of Age Novels to Read This Summer ..."
 description: "The Language of Flowers; Amaryllis in Blueberry; Beside a Burning Sea; The Secret of the Nightingale Palace; The Alchemist; More ..."
 url: "https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Fantastic Coming of Age Novels to Read This Summer ...
@@ -70,14 +70,14 @@ I hope that some of you check out these excellent reads! Which one intrigues you
 
 ## Related Posts
 
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
+- [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
+- [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
 - [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
-- [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
-- [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
-- [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
 - [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
 - [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
 - [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)

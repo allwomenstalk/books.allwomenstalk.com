@@ -3,7 +3,7 @@ title: "9 Well-Known Quotes You Probably Didnt Know Were from Literature ..."
 description: "\"…and Therefore Never Send to Know for Whom the Bell Tolls; It Tolls for Thee.\"; \"a Foolish Consistency is the Hobgoblin of Little Minds, Adored by Little Statesmen and Philosophers and Divines.\"; \"Beauty is Truth, Truth Beauty, -that is All Ye Know on Earth, and All Ye Need to Know.\"; \"Elementary, My Dear Watson.\"; \"Gather Ye Rosebuds While Ye May...\"; More ..."
 url: "https://books.allwomenstalk.com/well-known-quotes-you-probably-didnt-know-were-from-literature/"
 category: "books"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 9 Well\-Known Quotes You Probably Didnt Know Were from Literature ...
@@ -52,16 +52,16 @@ It's fun learning new quotes, but it's even more fun learning where they came fr
 
 ## Related Posts
 
-- [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
-- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
-- [dr seuss stand out quote](https://inspiration.allwomenstalk.com/insipiring-quotes-from-dr-seuss-to-live-by/)
-- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
 - [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
-- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
 - [self love workout quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
-- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
-- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
 - [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
+- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
+- [ones dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
+- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
+- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
+- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
+- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
+- [dr seuss stand out quote](https://inspiration.allwomenstalk.com/insipiring-quotes-from-dr-seuss-to-live-by/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [10 Fun Harry Potter Facts You Didnt Know ...](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
 
