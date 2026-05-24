@@ -3,7 +3,7 @@ title: "9 Books That Were Written While in Prison ..."
 description: "Don Quixote by Miguel De Cervantes; Letter from Birmingham Jail by Martin Luther King, Jr; The Travels of Marco Polo by Rustichello Da Pisa; De Profundis by Oscar Wilde; Short Stories by O. Henry; More ..."
 url: "https://books.allwomenstalk.com/books-that-were-written-while-in-prison/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 9 Books That Were Written While in Prison  ...
