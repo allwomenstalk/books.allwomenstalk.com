@@ -3,7 +3,7 @@ title: "10 Captivating Non-fiction Books to Read This Summer ..."
 description: "Spinster: Making a Life of One’s Own by Kate Bolick; Shrill: Notes from a Loud Woman by Lindy West; It’s Okay to Laugh (Crying is Cool Too) by Nora McInerny Purmort; Blackout: Remembering the Things I Drank to Forget by Sarah Hepola; You’ll Grow out of It by Jessi Klein; More ..."
 url: "https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-24"
 ---
 
 # 10 Captivating Non\-fiction Books to Read This Summer ...
