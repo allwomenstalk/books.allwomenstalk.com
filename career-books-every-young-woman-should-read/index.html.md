@@ -3,7 +3,7 @@ title: "9 Career Books Every Young Woman Should Read ..."
 description: "20 Something, 20 Everything by Christine Hassler; Women, Work & the Art of Savoir Faire by Mireille Guiliano; Bossypants by Tina Fey; Nice Girls Don’t Get the Corner Office by Lois P. Frankel; I Shouldn't Be Telling You This by Kate White; More ..."
 url: "https://books.allwomenstalk.com/career-books-every-young-woman-should-read/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Career Books Every Young Woman Should Read ...
@@ -68,16 +68,16 @@ I don't believe in self-help books but I wouldn't call these self-help books as 
 
 ## Related Posts
 
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 - [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
 - [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
+- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 in-the-Know Books Every Woman Should Read ...](https://allwomenstalk.com/7-in-the-know-books-every-woman-should-read/)
 

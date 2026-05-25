@@ -3,7 +3,7 @@ title: "7 Inspiring Books to Read if You Dream of Being an Author ..."
 description: "On Writing by Stephen King; How to Write Bestselling Fiction by Dean Koontz; The Elements of Style by E.B. White and William Strunk; Writing the Breakout Novel: Insider Advice for Taking Your Fiction to the Next Level by Donald Maass; The War of Art: Break through the Blocks & Win Your Inner Creative Battles by Steven Pressfield; More ..."
 url: "https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Inspiring Books to Read if You Dream of Being an Author ...
@@ -70,16 +70,16 @@ If you read each of these books, you'll become a much better writer! Are you an 
 
 ## Related Posts
 
+- [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
+- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
+- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
+- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
+- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
 - [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
 - [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
-- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
-- [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
-- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
-- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
-- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
-- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
 - [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
+- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
 - [5 Great Ideas for Bookworms ...](https://allwomenstalk.com/5-great-ideas-for-bookworms/)
 - [9 Brilliant Autobiographies to Read ...](https://allwomenstalk.com/9-brilliant-autobiographies-to-read/)
 

@@ -3,7 +3,7 @@ title: "7 Authors Id Love to Have a Conversation with ..."
 description: "J. K. Rowling; Christina Rossetti; Philip Pullman; J. R. R. Tolkien; George Orwell; More ..."
 url: "https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Authors Id Love to Have a Conversation with ...
@@ -56,16 +56,16 @@ So there you have it: the authors I’d most like to talk to. Some are still ali
 
 ## Related Posts
 
-- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
-- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
-- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
 - [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
+- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
 - [7 Celebrities I Would like to Hang with ...](https://celebs.allwomenstalk.com/7-celebrities-i-would-like-to-hang-with/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

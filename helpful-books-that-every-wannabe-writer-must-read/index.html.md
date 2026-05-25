@@ -3,7 +3,7 @@ title: "7 Helpful Books That Every Wannabe Writer Must Read ..."
 description: "Elements of Style by Strunk & White; On Writing by Stephen King; Creative Writing for Dummies by Maggie Hamand; 2013 Writer's Market by Robert Lee Brewer; Grammar Girl by Mignon Fogarty; More ..."
 url: "https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Helpful Books That Every Wannabe Writer Must Read ...
@@ -56,16 +56,16 @@ If you want to become a better writer, you have to write and read as much as pos
 
 ## Related Posts
 
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
 - [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
 - [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
 - [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
 - [5 Great Ideas for Bookworms ...](https://allwomenstalk.com/5-great-ideas-for-bookworms/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

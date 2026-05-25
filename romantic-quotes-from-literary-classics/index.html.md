@@ -3,7 +3,7 @@ title: "7 Romantic Quotes from Literary Classics ..."
 description: "Wuthering Heights - Heathcliff; A Streetcar Named Desire - Mitch; Pride and Prejudice -Elizabeth; Achilles’ Love - Sophocles; Harry Potter - the Grave at Godric’s Hollow; More ..."
 url: "https://books.allwomenstalk.com/romantic-quotes-from-literary-classics/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Romantic Quotes from Literary Classics ...
@@ -56,16 +56,16 @@ In the mystical world of literature, there are dozens of these quotes flying aro
 
 ## Related Posts
 
-- [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
-- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
-- [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
-- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
-- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
+- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
 - [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
+- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
+- [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
 - [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
+- [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
 - [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
-- [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
+- [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 

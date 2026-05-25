@@ -3,7 +3,7 @@ title: "Ghost Stories That Will Make You Sleep with the Light on ..."
 description: "Bag of Bones by Stephen King; The Shining by Stephen King; Scary Stories to Tell in the Dark by Alvin Schwartz; The Tell-Tale Heart by Edgar Allan Poe; The Haunting of Hill House by Shirley Jackson; More ..."
 url: "https://books.allwomenstalk.com/you-wont-be-able-to-sleep-after-hearing-these-ghost-stories/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Ghost Stories That Will Make You Sleep with the Light on ...
@@ -84,7 +84,7 @@ I've got a thing for old Edgar Allan. “The Raven” is cool and all, but if yo
 
 ## 13. The Monkey's Paw by W. W. Jacobs
 
-![The Monkey's Paw by W. W. Jacobs](https://img.allw.mn/content/jo/e7/lh6bzm7t56f7ea6dd23c0443942661_600x943.jpg)
+![The Monkey's Paw by W. W. Jacobs](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/jo/e7/lh6bzm7t56f7ea6dd23c0443942661_600x943.jpg)
 
 Get it at: [amazon.com](http://www.amazon.com?ref=allwomenstalk.com)
 
@@ -118,16 +118,16 @@ So, 'fess up. What scary stories always give you the creeps?
 
 ## Related Posts
 
+- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
 - [where to watch pramface](https://movies.allwomenstalk.com/shows-you-should-watch-if-youre-obsessed-with-british-boys/)
 - [examples of single stories in real life](https://lifestyle.allwomenstalk.com/one-line-stories-that-will-blow-you-away/)
 - [ethan from 90210](https://movies.allwomenstalk.com/on-screen-couples-that-would-never-work-in-the-real-world/)
-- [leighton meester and blake lively friends](https://celebs.allwomenstalk.com/these-on-screen-bffs-actually-hated-each-other-irl/)
-- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
-- [earth destruction images](https://lifestyle.allwomenstalk.com/heart-breaking-pictures-of-how-humans-are-damaging-planet-earth/)
-- [menstrual period gif](https://health.allwomenstalk.com/these-gifs-sum-up-period-week-perfectly/)
-- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
 - [tv shows for young adults](https://movies.allwomenstalk.com/young-adults-will-love-these-tv-shows/)
+- [leighton meester and blake lively friends](https://celebs.allwomenstalk.com/these-on-screen-bffs-actually-hated-each-other-irl/)
 - [gamer meme gif](https://funny.allwomenstalk.com/the-most-frustrating-gifs-every-gamer-has-experienced/)
+- [what emojis does the google pixel have](https://funny.allwomenstalk.com/android-emoji-vs-iphone-emoji-epic-showdown/)
+- [you stole my heart quotes](https://love.allwomenstalk.com/call-the-cops-the-guy-i-work-with-stole-my-heart/)
+- [menstrual period gif](https://health.allwomenstalk.com/these-gifs-sum-up-period-week-perfectly/)
 - [7 Ghost Stories Supposedly Proven ...](https://paranormal.allwomenstalk.com/ghost-stories-supposedly-proven/)
 - [15 Paranormal Movies Based on True Stories ...](https://paranormal.allwomenstalk.com/paranormal-movies-based-on-true-stories/)
 

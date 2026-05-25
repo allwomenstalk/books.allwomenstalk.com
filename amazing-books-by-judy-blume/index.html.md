@@ -3,7 +3,7 @@ title: "7 Amazing Books by Judy Blume ..."
 description: "Tales of a Fourth Grade Nothing; Superfudge; Otherwise Known as Sheila the Great; Blubber; Just as Long as We're Together; More ..."
 url: "https://books.allwomenstalk.com/amazing-books-by-judy-blume/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Amazing Books by Judy Blume ...
@@ -56,16 +56,16 @@ Although I haven't gotten a chance to read her entire collection (i.e. "Are You 
 
 ## Related Posts
 
-- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
-- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
-- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
 - [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
+- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
 - [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
 - [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
-- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
-- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
+- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
 - [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

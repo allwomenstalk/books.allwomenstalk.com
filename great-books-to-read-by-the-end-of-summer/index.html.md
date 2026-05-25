@@ -3,7 +3,7 @@ title: "7 Great Books to Read by the End of Summer ..."
 description: "The Not so Secret Emails of Coco Pinchard, Robert Bryndza; Get in Trouble, Kelly Link; Delirium, Lauren Oliver; Rooms, Lauren Oliver; Cinder, Marissa Meyer; More ..."
 url: "https://books.allwomenstalk.com/great-books-to-read-by-the-end-of-summer/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Great Books to Read by the End of Summer ...

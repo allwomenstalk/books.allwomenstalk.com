@@ -3,7 +3,7 @@ title: "7 Novellas You Can and Should Read in One Sitting for Girls Who Dont Wan
 description: "The Old Man and the Sea by Ernest Hemingway; The Awakening by Kate Chopin; The Call of Cthulhu by H.P. Lovecraft; The Pearl by John Steinbeck; Breakfast at Tiffany’s by Truman Capote; More ..."
 url: "https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Novellas You Can and Should  Read in One Sitting for Girls Who Dont Want Long Stories ...
@@ -70,16 +70,16 @@ Novellas can be just as thrilling as novels. The only difference is they take le
 
 ## Related Posts
 
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

@@ -3,7 +3,7 @@ title: "Some Famous Books Cant Be Made into Movies ..."
 description: "One Hundred Years of Solitude; The Catcher in the Rye; Infinite Jest; A Confederacy of Dunces; What Make Sammy Run?; More ..."
 url: "https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Some Famous Books Cant Be Made into Movies ...
@@ -45,16 +45,16 @@ Sources:
 
 ## Related Posts
 
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
 - [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
 - [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

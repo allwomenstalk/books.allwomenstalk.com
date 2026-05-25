@@ -3,7 +3,7 @@ title: "19 Books for Food Lovers That Arent Cookbooks ..."
 description: "The Corrections by Jonathan Franzen; Charlie and the Chocolate Factory; The Middlesteins by Jami Attenberg; Fast Food Nation by Eric Schlosser; Food in History by Reay Tannahill; More ..."
 url: "https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 19 Books for Food Lovers That Arent Cookbooks ...
@@ -38,7 +38,7 @@ Buy at: [amazon.com](http://www.amazon.com?ref=allwomenstalk.com)
 
 ![Fast Food Nation by Eric Schlosser](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/eq/s3/axwi0c1756f2eb24bf090360311636_600x914.jpg)
 
-A bestseller that digs deep in to the fast [food culture](https://food.allwomenstalk.com/cuisines-of-the-world/) of the USA and reveals some hard hitting and shocking home truths.
+A bestseller that digs deep in to the fast food culture of the USA and reveals some hard hitting and shocking home truths.
 
 Buy at: [amazon.com](http://www.amazon.com?ref=allwomenstalk.com)
 
@@ -166,16 +166,16 @@ We'd love to hear any of your recommendations for books about food that aren't r
 
 ## Related Posts
 
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
+- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
+- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
 - [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
 - [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
-- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
 - [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
-- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
-- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
-- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
 - [10 Tasty Italian Cookbooks ...](https://cooking.allwomenstalk.com/tasty-italian-cookbooks/)
 - [7 Essential Meals for One Cookbooks ...](https://cooking.allwomenstalk.com/essential-meals-for-one-cookbooks/)
 

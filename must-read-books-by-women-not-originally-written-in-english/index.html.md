@@ -3,7 +3,7 @@ title: "Must-Read Books by Women Not Originally Written in English ..."
 description: "Last Train to Istanbul by Ayse Kulin; The True Deceiver by Tove Jansson; My Brilliant Friend by Elena Ferrante; So Long a Letter by Mariama Ba; Rain Girl by Gabi Kreslehner; More ..."
 url: "https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/"
 category: "books"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Must\-Read Books by Women Not Originally Written in English ...
@@ -136,16 +136,16 @@ I hope you give some of these a try. If you know of other great translations, pl
 
 ## Related Posts
 
-- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
-- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
-- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
-- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
-- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
-- [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
 - [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
+- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
+- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
+- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
 - [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
+- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
 - [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
+- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
+- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
 - [7 Modern Feminism Books You Need to Read ...](https://lifestyle.allwomenstalk.com/modern-feminism-books-you-need-to-read/)
 - [9 Classic Novels with Timeless Messages to Read No...](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 
