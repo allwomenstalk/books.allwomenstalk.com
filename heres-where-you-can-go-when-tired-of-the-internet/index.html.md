@@ -54,16 +54,16 @@ I think a library will always have more power than the internet because of the s
 
 ## Related Posts
 
-- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
+- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
+- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
+- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
 - [best movie dates](https://movies.allwomenstalk.com/best-dates-in-the-movies/)
 - [what do you do in autumn](https://lifestyle.allwomenstalk.com/activities-youll-have-fun-doing-during-autumn/)
-- [things to do alone when bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-during-your-alone-time/)
-- [never have i ever questions girls night](https://funny.allwomenstalk.com/the-best-never-have-i-ever-game-questions/)
-- [monday.com hacks](https://lifestyle.allwomenstalk.com/hack-your-sunday-for-a-better-week/)
-- [rotten apples cards against humanity](https://funny.allwomenstalk.com/fun-card-games-youve-never-played-before/)
-- [banish boredom](https://lifestyle.allwomenstalk.com/how-to-banish-boredom-when-youre-alone/)
 - [fall bucket list for teens](https://lifestyle.allwomenstalk.com/the-ultimate-fall-bucket-list/)
+- [monday.com hacks](https://lifestyle.allwomenstalk.com/hack-your-sunday-for-a-better-week/)
+- [best games for intelligence](https://lifestyle.allwomenstalk.com/fun-games-thatll-make-you-more-intelligent/)
 - [always running late](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-running-a-little-late/)
+- [never have i ever questions girls night](https://funny.allwomenstalk.com/the-best-never-have-i-ever-game-questions/)
 - [Take Time out for YOU ...](https://allwomenstalk.com/take-time-out-for-you/)
 - [8 Reasons Why You Need a Hobby ...](https://allwomenstalk.com/8-reasons-why-you-need-a-hobby/)
 

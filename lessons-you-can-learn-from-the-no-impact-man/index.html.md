@@ -44,16 +44,16 @@ Beavan, Colin. No Impact Man. New York: Farrar, Straus, and Ginoux, 2009. Print.
 
 ## Related Posts
 
-- [one thing that money cant buy](https://money.allwomenstalk.com/things-money-cant-buy/)
+- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
 - [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
+- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
 - [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
-- [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
 - [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
-- [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
+- [one thing that money cant buy](https://money.allwomenstalk.com/things-money-cant-buy/)
 - [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
 - [7 Things to Ponder about Life ...](https://allwomenstalk.com/things-to-ponder-about-life/)
 - [7 Smart Changes to Make in Your Life ...](https://lifestyle.allwomenstalk.com/smart-changes-to-make-in-your-life/)
 

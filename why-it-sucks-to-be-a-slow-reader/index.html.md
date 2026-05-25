@@ -43,15 +43,15 @@ I know these are all **reasons why it sucks to be a slow reader**, but I love it
 ## Related Posts
 
 - [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
-- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
-- [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
 - [kisses arent contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
-- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
-- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
 - [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
-- [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
 - [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
+- [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
+- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
+- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
+- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
+- [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
 - [Get Caught Reading ...](https://allwomenstalk.com/get-caught-reading/)
 - [7 Reasons Why You Should Read ...](https://allwomenstalk.com/7-reasons-why-you-should-read/)
 

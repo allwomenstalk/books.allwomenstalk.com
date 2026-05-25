@@ -42,16 +42,16 @@ I will be proudly brandishing my YA novel on the train home tonight, and I hope 
 
 ## Related Posts
 
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
 - [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
 - [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
-- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
+- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
 - [5 Reasons to Read Twilight ...](https://twilight.allwomenstalk.com/5-reasons-to-read-twilight/)
 - [5 Reasons to Read the Short Second Life of Bree Ta...](https://twilight.allwomenstalk.com/5-reasons-to-read-the-short-second-life-of-bree-tanner/)
 

@@ -42,16 +42,16 @@ Buy here: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
 - [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
-- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
+- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 - [7 Tips in Life That Lead to Happiness ...](https://allwomenstalk.com/7-tips-in-life-that-lead-to-happiness/)
 - [5 Things to Make You Happy ...](https://allwomenstalk.com/5-things-to-make-you-happy/)
 

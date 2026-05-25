@@ -54,16 +54,16 @@ If you own a Kindle, make sure you try out all of these little tricks to get the
 
 ## Related Posts
 
-- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
-- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
-- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
-- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
+- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
+- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
 - [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books You Should Have on Your Shelf ...](https://allwomenstalk.com/books-you-should-have-on-your-shelf/)
 

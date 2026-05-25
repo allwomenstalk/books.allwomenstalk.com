@@ -86,16 +86,16 @@ There are so many classic novels, and I like to think that most of them have val
 
 ## Related Posts
 
-- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
-- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
-- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
 - [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [9 Brilliant Autobiographies to Read ...](https://allwomenstalk.com/9-brilliant-autobiographies-to-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

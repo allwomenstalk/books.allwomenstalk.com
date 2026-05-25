@@ -56,16 +56,16 @@ What are your recommendations for books this fall? Will you check any of these o
 
 ## Related Posts
 
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
-- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
 - [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Best Books for Pool Side Reading ...](https://allwomenstalk.com/best-books-for-pool-side-reading/)
 

@@ -88,14 +88,14 @@ No matter if you’re vegan or you’re just curious about a vegan diet, definit
 
 - [mr mercedes amazon](https://books.allwomenstalk.com/bestselling-audio-books-on-amazon-to-check-out-soon/)
 - [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
-- [top coming of age books](https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
 - [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
-- [books to inspire creativity](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 - [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
+- [books to inspire creativity](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
 - [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
 - [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
+- [top coming of age books](https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [8 Top Vegan Blogs of 2013 ...](https://lifestyle.allwomenstalk.com/top-vegan-blogs-of/)
 - [9 New Nondairy Items on Store Shelves That Are Wor...](https://eatial.com/new-nondairy-items-on-store-shelves-that-are-worth-trying-today/)
 

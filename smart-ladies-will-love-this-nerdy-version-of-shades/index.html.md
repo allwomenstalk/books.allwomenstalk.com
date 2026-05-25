@@ -66,16 +66,16 @@ To read more, follow @50NerdsofGrey on Twitter... and enjoy!
 
 ## Related Posts
 
-- [9 Girl Power Athletes to Follow at the Summer Game...](https://celebs.allwomenstalk.com/girl-power-athletes-to-follow-at-the-summer-games-in-rio/)
-- [loreal color riche le stylo shadow blinged brillia...](https://lifestyle.allwomenstalk.com/ways-intersectional-feminism-benefits-every-woman/)
-- [132 Female Style Looks to Love and Be Amazed at .....](https://fashion.allwomenstalk.com/female-style-looks-to-love-and-be-amazed-at/)
-- [These Actresses Are the ones to Watch ...](https://movies.allwomenstalk.com/these-actresses-are-the-ones-to-watch/)
-- [This 19-Year-Old Won the 1st Gold Medal for USA ﻿I...](https://inspiration.allwomenstalk.com/this-19-year-old-won-the-1st-gold-medal-for-usa-incredible-inspo-for-girls-who-think-they-are-too-young-for-success/)
-- [22 Women on Fortunes Top 50 List That Have Us Scre...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
-- [charlie buckingham](https://celebs.allwomenstalk.com/these-are-the-hotties-to-watch-in-the-summer-games-in-rio/)
-- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
 - [paris riche le bottomless](https://lifestyle.allwomenstalk.com/please-meet-allwomenstalks-perfect-reader/)
+- [loreal color riche le stylo shadow blinged brillia...](https://lifestyle.allwomenstalk.com/ways-intersectional-feminism-benefits-every-woman/)
+- [misconceptions about women](https://inspiration.allwomenstalk.com/ridiculous-misconceptions-about-independent-women/)
+- [132 Female Style Looks to Love and Be Amazed at .....](https://fashion.allwomenstalk.com/female-style-looks-to-love-and-be-amazed-at/)
+- [22 Women on Fortunes Top 50 List That Have Us Scre...](https://lifestyle.allwomenstalk.com/career-goals-these-women-are-in-fortunes-top-50/)
 - [Every Woman Should Know about the United State of ...](https://lifestyle.allwomenstalk.com/every-woman-should-know-about-the-united-state-of-women/)
+- [9 Girl Power Athletes to Follow at the Summer Game...](https://celebs.allwomenstalk.com/girl-power-athletes-to-follow-at-the-summer-games-in-rio/)
+- [These Actresses Are the ones to Watch ...](https://movies.allwomenstalk.com/these-actresses-are-the-ones-to-watch/)
+- [charlie buckingham](https://celebs.allwomenstalk.com/these-are-the-hotties-to-watch-in-the-summer-games-in-rio/)
+- [This 19-Year-Old Won the 1st Gold Medal for USA ﻿I...](https://inspiration.allwomenstalk.com/this-19-year-old-won-the-1st-gold-medal-for-usa-incredible-inspo-for-girls-who-think-they-are-too-young-for-success/)
 - [Geek is the New Black ...](https://allwomenstalk.com/geek-is-the-new-black/)
 - [Illuminating Books for Women in Their 20s ...](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 

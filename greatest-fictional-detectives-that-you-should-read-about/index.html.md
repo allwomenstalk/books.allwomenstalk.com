@@ -42,16 +42,16 @@ Reading about these fictional detectives is an excellent way to sharpen your own
 
 ## Related Posts
 
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
+- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
 - [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
 - [7 Best Movie Spies ...](https://allwomenstalk.com/7-best-movie-spies/)
 - [8 Top TV Detectives ...](https://allwomenstalk.com/8-top-tv-detectives/)
 

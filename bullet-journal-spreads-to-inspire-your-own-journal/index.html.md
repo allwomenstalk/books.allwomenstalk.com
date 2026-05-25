@@ -50,16 +50,16 @@ Here are some amazing **bullet journal spreads to inspire your own journal**.
 
 ## Related Posts
 
-- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
-- [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
 - [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
-- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
-- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
 - [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
-- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
-- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
-- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
 - [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
+- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
+- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
+- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
+- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
+- [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
+- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
 - [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
 - [8 Cleverly Efficient Tips on How to Start Your Day...](https://health.allwomenstalk.com/cleverly-efficient-tips-on-how-to-start-your-day/)
 

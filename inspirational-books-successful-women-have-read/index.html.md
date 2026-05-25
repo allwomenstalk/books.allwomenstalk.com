@@ -58,16 +58,16 @@ Which books are you adding to your reading list?
 
 ## Related Posts
 
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
-- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
-- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
-- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
 - [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
+- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
 - [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
+- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
 - [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
 - [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

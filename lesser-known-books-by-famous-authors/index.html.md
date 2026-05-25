@@ -56,16 +56,16 @@ So do check out the lesser-known works by your favorite authors; you'll discover
 
 ## Related Posts
 
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
-- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
 - [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Underrated Authors Youll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 

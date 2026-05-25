@@ -66,16 +66,16 @@ These are just a few of the top cookbooks that I have in my kitchen! Do you have
 
 ## Related Posts
 
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
-- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
 - [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [7 Cupcake Cookbooks ...](https://thecrepescafe.com/7-cupcake-cookbooks/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 

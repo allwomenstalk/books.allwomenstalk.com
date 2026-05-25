@@ -164,16 +164,16 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [first line of great gatsby](https://books.allwomenstalk.com/opening-lines-that-hook-you-right-in-to-read-the-whole-book/)
-- [Take a Tour of America through the Eyes of a Book ...](https://books.allwomenstalk.com/take-a-tour-of-america-through-the-eyes-of-a-book-for-all-the-literary-lovers-out-there/)
-- [3 Books to Read if Youre Thinking  of Quitting You...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
-- [loreal paris riche stylo smoky azure](https://books.allwomenstalk.com/beauty-through-the-mist-by-cristen-rogers/)
-- [6 Books about Personal Growth to Read  in 2018 for...](https://books.allwomenstalk.com/books-about-personal-growth/)
 - [20 Best Books from 2017 You Wont Be Able to Put do...](https://books.allwomenstalk.com/best-books-of-2017/)
 - [Books to Get You in the Mood for Fall ...](https://books.allwomenstalk.com/books-to-get-you-in-the-mood-for-fall/)
+- [loreal paris riche stylo smoky azure](https://books.allwomenstalk.com/beauty-through-the-mist-by-cristen-rogers/)
+- [first line of great gatsby](https://books.allwomenstalk.com/opening-lines-that-hook-you-right-in-to-read-the-whole-book/)
+- [Take a Tour of America through the Eyes of a Book ...](https://books.allwomenstalk.com/take-a-tour-of-america-through-the-eyes-of-a-book-for-all-the-literary-lovers-out-there/)
+- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
+- [6 Books about Personal Growth to Read  in 2018 for...](https://books.allwomenstalk.com/books-about-personal-growth/)
+- [3 Books to Read if Youre Thinking  of Quitting You...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
 - [Short Books for Busy People  Who Want to Read  Mor...](https://books.allwomenstalk.com/short-books-for-busy-people/)
 - [Exceptional Reasons to Read Margaret Atwood ...](https://books.allwomenstalk.com/reasons-to-read-margaret-atwood/)
-- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
 - [Fantastic Books Written by Your Favorite Funny Wom...](https://books.allwomenstalk.com/books-by-funny-women-you-must-read-soon/)
 - [The Best Beach Reads for Girls in Their Twenties ....](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
 

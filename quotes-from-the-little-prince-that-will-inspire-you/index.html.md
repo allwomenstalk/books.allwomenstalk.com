@@ -61,16 +61,16 @@ Sources:
 
 ## Related Posts
 
-- [jennifer lawrence quotes](https://celebs.allwomenstalk.com/inspirational-quotes-about-body-image-from-your-favorite-celebrities/)
-- [quotes on miracles](https://inspiration.allwomenstalk.com/comforting-quotes-about-miracles-to-help-you-become-a-more-positive-person/)
-- [never mess with a tough girl](https://funny.allwomenstalk.com/quotes-that-prove-you-should-never-mess-with-a-woman/)
-- [things are getting worse please send chocolate](https://funny.allwomenstalk.com/the-truth-is-out-quotes-about-chocolate-we-can-all-relate-to/)
-- [dressing room quotes](https://inspiration.allwomenstalk.com/motivational-words-you-need-on-your-dressing-room-mirror/)
-- [little but fierce tattoo](https://beauty.allwomenstalk.com/tattoo-quotes-from-classic-literature-for-your-first-tattoo/)
-- [positive dont worry quotes](https://inspiration.allwomenstalk.com/dont-worry-be-happy-best-quotes-in-the-world-thatll-help-you-stop-worrying/)
-- [stop body shaming quotes](https://inspiration.allwomenstalk.com/stop-body-shaming-quotes-about-loving-your-size/)
-- [soulmates that cant be together quotes](https://love.allwomenstalk.com/the-sweetest-quotes-about-soulmates/)
 - [i love shopping images](https://funny.allwomenstalk.com/love-shopping-these-funny-shopping-quotes-are-perfect-for-you/)
+- [jennifer lawrence quotes](https://celebs.allwomenstalk.com/inspirational-quotes-about-body-image-from-your-favorite-celebrities/)
+- [stop body shaming quotes](https://inspiration.allwomenstalk.com/stop-body-shaming-quotes-about-loving-your-size/)
+- [positive dont worry quotes](https://inspiration.allwomenstalk.com/dont-worry-be-happy-best-quotes-in-the-world-thatll-help-you-stop-worrying/)
+- [soulmates that cant be together quotes](https://love.allwomenstalk.com/the-sweetest-quotes-about-soulmates/)
+- [never mess with a tough girl](https://funny.allwomenstalk.com/quotes-that-prove-you-should-never-mess-with-a-woman/)
+- [little but fierce tattoo](https://beauty.allwomenstalk.com/tattoo-quotes-from-classic-literature-for-your-first-tattoo/)
+- [things are getting worse please send chocolate](https://funny.allwomenstalk.com/the-truth-is-out-quotes-about-chocolate-we-can-all-relate-to/)
+- [quotes on miracles](https://inspiration.allwomenstalk.com/comforting-quotes-about-miracles-to-help-you-become-a-more-positive-person/)
+- [dressing room quotes](https://inspiration.allwomenstalk.com/motivational-words-you-need-on-your-dressing-room-mirror/)
 - [7 Stargirl Quotes to Inspire You ...](https://allwomenstalk.com/7-stargirl-quotes-to-inspire-you/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

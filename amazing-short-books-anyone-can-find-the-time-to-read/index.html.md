@@ -70,16 +70,16 @@ There are a lot of brilliant short books anyone can find the time to read. I jus
 
 ## Related Posts
 
-- [7 of the Best Books of 2014 so Far ...](https://books.allwomenstalk.com/of-the-best-books-of-so-far/)
-- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
-- [7 Top Book Releases for the Summer ...](https://books.allwomenstalk.com/top-book-releases-for-the-summer/)
-- [best health books to read](https://books.allwomenstalk.com/health-books-you-just-have-to-read/)
-- [8 Places to Score Free Books ...](https://books.allwomenstalk.com/places-to-score-free-books/)
 - [7 Female Authors to Add to Your Reading List ...](https://books.allwomenstalk.com/female-authors-to-add-to-your-reading-list/)
-- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
+- [best health books to read](https://books.allwomenstalk.com/health-books-you-just-have-to-read/)
+- [7 of the Best Books of 2014 so Far ...](https://books.allwomenstalk.com/of-the-best-books-of-so-far/)
 - [charles dickens books turned into movies](https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/)
 - [7 Amazing Memoirs I Need to Get My Hands on ...](https://books.allwomenstalk.com/amazing-memoirs-i-need-to-get-my-hands-on/)
 - [essential oils for writers block](https://funny.allwomenstalk.com/story-prompts-to-use-when-you-have-writers-block/)
+- [8 Places to Score Free Books ...](https://books.allwomenstalk.com/places-to-score-free-books/)
+- [7 Books to Put on Your 2014 Summer Reading List .....](https://books.allwomenstalk.com/books-you-must-have-on-your-summer-reading-list/)
+- [7 Books That Should Be Turned into Movies ...](https://books.allwomenstalk.com/books-that-should-be-turned-into-movies/)
+- [7 Top Book Releases for the Summer ...](https://books.allwomenstalk.com/top-book-releases-for-the-summer/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [9 Non-Fiction Books to Read This Summer ...](https://allwomenstalk.com/9-non-fiction-books-to-read-this-summer/)
 

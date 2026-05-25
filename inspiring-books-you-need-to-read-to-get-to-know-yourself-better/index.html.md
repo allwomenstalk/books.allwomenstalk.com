@@ -70,16 +70,16 @@ So, this is my list of 7 most inspiring books you need to read if you want to ge
 
 ## Related Posts
 
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
 - [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
-- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [Top 10 Books on Self-Improvement ...](https://allwomenstalk.com/top-10-books-on-self-improvement/)
 - [7 Best Self Help Books That Actually Help ...](https://health.allwomenstalk.com/best-self-help-books-that-actually-help/)
 

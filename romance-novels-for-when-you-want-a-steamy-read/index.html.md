@@ -87,16 +87,16 @@ Buy here: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
 - [21 Sexy Role Playing Ideas for Couples Spicing Thi...](https://love.allwomenstalk.com/sexy-role-playing-ideas-for-couples/)
 - [15 Romantic Gifts for Girls ...](https://allwomenstalk.com/10-romantic-gifts-for-girls/)
 

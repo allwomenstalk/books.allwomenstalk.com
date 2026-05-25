@@ -164,16 +164,16 @@ _ Via Tips for Making More Time ..._
 
 ## Related Posts
 
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
+- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
+- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [5 Great Ideas for Bookworms ...](https://allwomenstalk.com/5-great-ideas-for-bookworms/)
 

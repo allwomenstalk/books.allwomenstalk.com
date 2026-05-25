@@ -164,16 +164,16 @@ Tutorial here: [shelterness.com](https://www.shelterness.com/25-cool-window-seat
 
 ## Related Posts
 
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [15 Creative Ways to Display and Organize Your Jewe...](https://lifestyle.allwomenstalk.com/creative-ways-to-display-and-organize-your-jewelry/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 

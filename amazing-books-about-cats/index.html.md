@@ -56,16 +56,16 @@ Cats make wonderful subjects for books of all types. I just can't read enough fe
 
 ## Related Posts
 
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

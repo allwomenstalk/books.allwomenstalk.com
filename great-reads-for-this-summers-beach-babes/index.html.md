@@ -176,16 +176,16 @@ Please share any books you think we should be into this summer. Happy reading!
 
 ## Related Posts
 
-- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
-- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
-- [summer concerts in nyc](https://music.allwomenstalk.com/free-nyc-summer-concerts-worth-going-to/)
-- [women singer summer](https://music.allwomenstalk.com/the-ultimate-summer-playlist-for-women-who-love-the-beach/)
-- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
-- [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
-- [chubby girls drawings](https://beauty.allwomenstalk.com/girls-with-chubby-thighs-will-appreciate-these-tips/)
 - [new things to learn when bored](https://teen.allwomenstalk.com/stave-off-summer-boredom-by-learning-these-new-skills/)
+- [summer goals list](https://lifestyle.allwomenstalk.com/heres-the-ultimate-squad-goals-summer-bucket-list/)
+- [chubby girls drawings](https://beauty.allwomenstalk.com/girls-with-chubby-thighs-will-appreciate-these-tips/)
+- [sarah scribbles period](https://funny.allwomenstalk.com/comics-that-sum-up-my-life-this-summer/)
+- [excuse for not attending dinner](https://lifestyle.allwomenstalk.com/great-excuses-for-missing-that-wedding-or-grad-party-this-summer/)
 - [movies under stars](https://movies.allwomenstalk.com/the-best-places-to-watch-a-movie-under-the-stars-this-summer/)
+- [women singer summer](https://music.allwomenstalk.com/the-ultimate-summer-playlist-for-women-who-love-the-beach/)
 - [camp fire recipes](https://food.allwomenstalk.com/easy-campfire-treats-for-the-summer/)
+- [summer concerts in nyc](https://music.allwomenstalk.com/free-nyc-summer-concerts-worth-going-to/)
+- [why is summer so annoying](https://beauty.allwomenstalk.com/prepare-yourself-for-these-annoying-summer-problems/)
 - [10 Great Vacation Spots to Hit This Summer ...](https://travel.allwomenstalk.com/great-vacation-spots-to-hit-this-summer/)
 - [8 Things to do This Summer ...](https://allwomenstalk.com/8-things-to-do-this-summer/)
 

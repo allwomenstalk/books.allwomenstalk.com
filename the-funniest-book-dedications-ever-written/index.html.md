@@ -116,16 +116,16 @@ It's always nice when authors have a sense of humor. What's the best book dedica
 
 ## Related Posts
 
-- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
-- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
-- [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
 - [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
 - [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
-- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
+- [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
 - [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
+- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
+- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

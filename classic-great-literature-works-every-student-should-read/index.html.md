@@ -62,16 +62,16 @@ _amazon.com_
 
 ## Related Posts
 
-- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
-- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Dont Shop without This Book](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

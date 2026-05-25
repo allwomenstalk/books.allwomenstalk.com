@@ -52,16 +52,16 @@ They’ve decided after their kids graduated college that their life was missing
 
 ## Related Posts
 
-- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
-- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
-- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
 - [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
+- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
+- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
 - [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
 - [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
-- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
-- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
-- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
+- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
 - [Seven Semi-Serious Questions about Writing](https://allwomenstalk.com/seven-semi-serious-questions-about-writing-2/)
 - [10 Reasons I Love to Write ...](https://allwomenstalk.com/10-reasons-i-love-to-write/)
 

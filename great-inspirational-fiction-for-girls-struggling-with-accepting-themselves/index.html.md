@@ -63,16 +63,16 @@ Each of these books tackles the issue of self-acceptance in a creative and effec
 
 ## Related Posts
 
-- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
-- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
-- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
-- [the budget queen](https://money.allwomenstalk.com/a-girls-guide-to-living-like-a-queen-on-a-peasants-budget/)
-- [francis bacon tattoo](https://beauty.allwomenstalk.com/the-best-meaningful-tattoos-to-get-for-girls-craving-some-ink/)
 - [dating girls app](https://apps.allwomenstalk.com/dating-app-hacks-all-girls-who-swipe-should-know/)
 - [how to be less shy and more confident](https://inspiration.allwomenstalk.com/perfect-strategies-for-shy-girls-to-gain-more-confidence/)
-- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
-- [modern princesses](https://inspiration.allwomenstalk.com/the-rules-all-modern-day-princesses-follow/)
 - [perfect girl categories](https://lifestyle.allwomenstalk.com/the-personality-types-you-need-to-befriend-to-make-up-the-perfect-girl-crew/)
+- [francis bacon tattoo](https://beauty.allwomenstalk.com/the-best-meaningful-tattoos-to-get-for-girls-craving-some-ink/)
+- [modern princesses](https://inspiration.allwomenstalk.com/the-rules-all-modern-day-princesses-follow/)
+- [be body smart](https://health.allwomenstalk.com/things-women-need-to-know-to-be-body-smart/)
+- [the budget queen](https://money.allwomenstalk.com/a-girls-guide-to-living-like-a-queen-on-a-peasants-budget/)
+- [le stylo amber rush](https://inspiration.allwomenstalk.com/how-to-increase-your-self-worth-for-women-feeling-insecure/)
+- [double standerd](https://lifestyle.allwomenstalk.com/double-standards-you-didnt-know-women-experience-every-day/)
+- [wantab](https://diet.allwomenstalk.com/healthy-habits-for-girls-who-want-ab-definition/)
 - [Life Changing Tips to Finding Inner Peace for Girl...](https://inspiration.allwomenstalk.com/steps-to-healing-your-hidden-hurts/)
 - [Inspo for Girls Who Want to Be Their Own Boss ...](https://money.allwomenstalk.com/reasons-to-be-your-own-boss/)
 

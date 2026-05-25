@@ -43,15 +43,15 @@ As you can see, not every fairytale has a happy ending. Not many do, in fact. Pe
 ## Related Posts
 
 - [weird things to send to your friend](https://funny.allwomenstalk.com/weird-wacky-things-all-best-friends-do/)
+- [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
+- [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
+- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
 - [most inspiring athletes](https://celebs.allwomenstalk.com/inspiring-athletes-through-the-ages/)
-- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
-- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [toronto bungee jumping](https://travel.allwomenstalk.com/get-ready-to-scream-the-most-spine-tingling-bungee-jumps-in-the-world/)
 - [kiss marry smash](https://funny.allwomenstalk.com/the-hardest-kiss-marry-kill-game-youll-ever-play/)
+- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [family story writing](https://lifestyle.allwomenstalk.com/touching-family-stories-that-will-make-you-cry/)
-- [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
-- [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
-- [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
+- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 

@@ -46,16 +46,16 @@ Of course, there are a couple of obvious ones I could have included on this list
 
 ## Related Posts
 
-- [should i tell her my feelings](https://love.allwomenstalk.com/ways-men-express-their-feelings-that-you-should-know-about/)
-- [woman are amazing](https://love.allwomenstalk.com/qualities-of-an-amazing-woman-to-attract-the-man-of-your-dreams/)
-- [dating websites for men](https://love.allwomenstalk.com/types-of-guys-youll-meet-on-online-dating-websites/)
-- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
 - [what do you love most about your partner](https://love.allwomenstalk.com/great-personality-traits-that-make-a-guy-perfect-boyfriend-material/)
+- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
+- [how to roll sleeves female](https://love.allwomenstalk.com/strange-things-we-find-sexy-about-guys/)
+- [woman are amazing](https://love.allwomenstalk.com/qualities-of-an-amazing-woman-to-attract-the-man-of-your-dreams/)
+- [should i tell her my feelings](https://love.allwomenstalk.com/ways-men-express-their-feelings-that-you-should-know-about/)
+- [types of guys to date](https://love.allwomenstalk.com/types-of-men-to-avoid/)
+- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
+- [dating websites for men](https://love.allwomenstalk.com/types-of-guys-youll-meet-on-online-dating-websites/)
 - [what do girls love](https://love.allwomenstalk.com/common-ways-girls-use-men/)
 - [7 Biggest Misconceptions Most People Have about Bi...](https://lifestyle.allwomenstalk.com/big-misconceptions-about-bisexual-women/)
-- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
-- [types of guys to date](https://love.allwomenstalk.com/types-of-men-to-avoid/)
-- [how to roll sleeves female](https://love.allwomenstalk.com/strange-things-we-find-sexy-about-guys/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 

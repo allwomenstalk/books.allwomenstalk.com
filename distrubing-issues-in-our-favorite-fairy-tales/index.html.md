@@ -42,16 +42,16 @@ Another commonality in bedtime stories is that most of the time female character
 
 ## Related Posts
 
+- [What Youll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
+- [A Cure for Chaos ...](https://parenting.allwomenstalk.com/a-cure-for-chaos/)
 - [different types of immigrants](https://lifestyle.allwomenstalk.com/different-types-of-immigrants/)
 - [Social Reforms in Saudi Arabia ...](https://lifestyle.allwomenstalk.com/social-reforms-in-saudi-arabia/)
-- [The Last Time  by Anon ...](https://parenting.allwomenstalk.com/the-last-time-by-anon/)
-- [TV Shows Turning 20 in 2018 ...](https://movies.allwomenstalk.com/tv-shows-turning-20-in-2018/)
-- [Dingo on the Plains by Aaron Solomon ...](https://inspiration.allwomenstalk.com/dingo-on-the-plains-by-aaron-solomon/)
-- [just me patsy](https://inspiration.allwomenstalk.com/my-life-by-just-paty/)
-- [A Cure for Chaos ...](https://parenting.allwomenstalk.com/a-cure-for-chaos/)
 - [short stories about memory](https://books.allwomenstalk.com/memory-a-short-story/)
+- [The Last Time  by Anon ...](https://parenting.allwomenstalk.com/the-last-time-by-anon/)
+- [Dingo on the Plains by Aaron Solomon ...](https://inspiration.allwomenstalk.com/dingo-on-the-plains-by-aaron-solomon/)
+- [TV Shows Turning 20 in 2018 ...](https://movies.allwomenstalk.com/tv-shows-turning-20-in-2018/)
 - [The Longest Eclipse of the Century is Coming on Ju...](https://lifestyle.allwomenstalk.com/the-longest-eclipse-of-the-century-is-coming-on-july-27th/)
-- [What Youll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
+- [just me patsy](https://inspiration.allwomenstalk.com/my-life-by-just-paty/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Funny Confessions of a Werewolf ...](https://twilight.allwomenstalk.com/5-funny-confessions-of-a-werewolf/)
 

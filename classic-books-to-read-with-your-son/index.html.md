@@ -70,16 +70,16 @@ Not enough people read classic books with their children, but if it’s somethin
 
 ## Related Posts
 
-- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
-- [books everyone should read before they die](https://books.allwomenstalk.com/books-to-read-before-you-die/)
-- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
-- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
-- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
-- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
 - [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
-- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
-- [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
+- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
+- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
 - [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
+- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
+- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
+- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
+- [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
+- [books everyone should read before they die](https://books.allwomenstalk.com/books-to-read-before-you-die/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Books for Your Childs Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 

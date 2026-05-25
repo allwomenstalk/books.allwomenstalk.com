@@ -58,11 +58,11 @@ These are 7 books you need on your nightstand in 2015. Now it’s your turn. Wha
 
 - [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
 - [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
-- [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
+- [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)

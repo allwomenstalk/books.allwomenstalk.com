@@ -42,16 +42,16 @@ There are so many love stories out there – some with happy endings, a lot that
 
 ## Related Posts
 
-- [how old is valentines day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
-- [crush gif](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-what-a-crush-feels-like/)
-- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
-- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
-- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
-- [boyfriend working on valentines day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
 - [is valentines day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
 - [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
-- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [crush gif](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-what-a-crush-feels-like/)
 - [valentine best gift](https://love.allwomenstalk.com/valentines-gifts-and-gestures-that-dont-cost-a-penny/)
+- [how old is valentines day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
+- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
+- [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
+- [statistically a woman who purchases flowers on val...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
+- [boyfriend working on valentines day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)
 - [8 Most Romantic Love Scenes ...](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
 

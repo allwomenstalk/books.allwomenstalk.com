@@ -80,16 +80,16 @@ What book do you think everyone should read before they die?
 
 ## Related Posts
 
+- [Short Story: Bookstore Meets Rockstar Part 2 ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
+- [Short Story: Bookstore Meets Rockstar Part 3 ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
 - [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
-- [10 Books with Epic First Chapters Thatll Reel You ...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
 - [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
 - [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
-- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
-- [Short Story: Bookstore Meets Rockstar Part 3 ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
 - [riche le eye smoldering plum](https://books.allwomenstalk.com/books-thatll-inspire-you-to-make-a-new-start-in/)
 - [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [Short Story: Bookstore Meets Rockstar Part 2 ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [10 Books with Epic First Chapters Thatll Reel You ...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [8 Reasons to Hang out in Your Local Library ...](https://allwomenstalk.com/8-reasons-to-hang-out-in-your-local-library/)
 

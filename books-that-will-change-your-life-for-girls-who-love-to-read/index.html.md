@@ -181,15 +181,15 @@ Change. Is. Good. Be happy!
 ## Related Posts
 
 - [first line of great gatsby](https://books.allwomenstalk.com/opening-lines-that-hook-you-right-in-to-read-the-whole-book/)
-- [6 Books about Personal Growth to Read  in 2018 for...](https://books.allwomenstalk.com/books-about-personal-growth/)
-- [Take a Tour of America through the Eyes of a Book ...](https://books.allwomenstalk.com/take-a-tour-of-america-through-the-eyes-of-a-book-for-all-the-literary-lovers-out-there/)
 - [loreal paris riche stylo smoky azure](https://books.allwomenstalk.com/beauty-through-the-mist-by-cristen-rogers/)
-- [Riveting  Psychological Novels for Girls Who Love ...](https://books.allwomenstalk.com/riveting-psychological-novels-for-girls-who-love-a-good-book/)
-- [3 Books to Read if Youre Thinking  of Quitting You...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
+- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
 - [Books to Get You in the Mood for Fall ...](https://books.allwomenstalk.com/books-to-get-you-in-the-mood-for-fall/)
+- [Take a Tour of America through the Eyes of a Book ...](https://books.allwomenstalk.com/take-a-tour-of-america-through-the-eyes-of-a-book-for-all-the-literary-lovers-out-there/)
+- [3 Books to Read if Youre Thinking  of Quitting You...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
+- [6 Books about Personal Growth to Read  in 2018 for...](https://books.allwomenstalk.com/books-about-personal-growth/)
+- [Riveting  Psychological Novels for Girls Who Love ...](https://books.allwomenstalk.com/riveting-psychological-novels-for-girls-who-love-a-good-book/)
 - [Exceptional Reasons to Read Margaret Atwood ...](https://books.allwomenstalk.com/reasons-to-read-margaret-atwood/)
 - [20 Best Books from 2017 You Wont Be Able to Put do...](https://books.allwomenstalk.com/best-books-of-2017/)
-- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
 - [9 Reasons Every Girl Should Read ...](https://allwomenstalk.com/9-reasons-every-girl-should-read/)
 - [7 Life Changing Biographies You Must Read ...](https://allwomenstalk.com/life-changing-biographies-you-must-read/)
 

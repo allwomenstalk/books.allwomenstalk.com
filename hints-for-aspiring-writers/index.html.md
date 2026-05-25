@@ -34,16 +34,16 @@ The road to publishing can be rocky, and at times you may feel like throwing in 
 
 ## Related Posts
 
-- [making friends in a new city](https://lifestyle.allwomenstalk.com/ways-to-make-friends-in-a-new-city/)
+- [how to turn weakness into strength](https://inspiration.allwomenstalk.com/how-to-turn-weaknesses-into-stengths/)
+- [how to write email on phone](https://apps.allwomenstalk.com/pro-tips-for-writing-emails-on-your-phone/)
 - [do hostess get tips](https://lifestyle.allwomenstalk.com/tips-for-being-a-good-hostess/)
-- [how to improve penmanship for adults](https://lifestyle.allwomenstalk.com/video-tutorial-on-how-to-improve-your-handwriting/)
-- [5 tips to overcome your fear of public speaking](https://lifestyle.allwomenstalk.com/steps-to-overcome-a-fear-of-public-speaking/)
-- [how to prepare for the holidays](https://lifestyle.allwomenstalk.com/tips-for-preparing-for-holiday-season/)
 - [cuffing season quotes](https://love.allwomenstalk.com/things-to-keep-in-mind-for-cuffing-season/)
 - [ways to market your book](https://books.allwomenstalk.com/how-to-market-your-book/)
-- [how to write email on phone](https://apps.allwomenstalk.com/pro-tips-for-writing-emails-on-your-phone/)
+- [5 tips to overcome your fear of public speaking](https://lifestyle.allwomenstalk.com/steps-to-overcome-a-fear-of-public-speaking/)
+- [making friends in a new city](https://lifestyle.allwomenstalk.com/ways-to-make-friends-in-a-new-city/)
 - [what are revision notes](https://teen.allwomenstalk.com/tips-for-making-revision-notes/)
-- [how to turn weakness into strength](https://inspiration.allwomenstalk.com/how-to-turn-weaknesses-into-stengths/)
+- [how to prepare for the holidays](https://lifestyle.allwomenstalk.com/tips-for-preparing-for-holiday-season/)
+- [how to improve penmanship for adults](https://lifestyle.allwomenstalk.com/video-tutorial-on-how-to-improve-your-handwriting/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [8 Tips for a Freelance Writer ...](https://allwomenstalk.com/8-tips-for-a-freelance-writer/)
 

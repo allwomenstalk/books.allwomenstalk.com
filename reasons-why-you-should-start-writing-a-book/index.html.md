@@ -42,16 +42,16 @@ Books have a chance of existing for a lifetime - especially since they are typic
 
 ## Related Posts
 
-- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
-- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
-- [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
-- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
-- [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
-- [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
-- [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
-- [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
 - [how does integrity help you in life](https://inspiration.allwomenstalk.com/reasons-why-integrity-is-important/)
+- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
+- [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
 - [vitamix quiz](https://food.allwomenstalk.com/reasons-to-own-a-vitamix-blender/)
+- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
+- [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
+- [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
+- [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
+- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
+- [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
 - [8 Reasons to Join a Summer Book Club ...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-summer-book-club/)
 - [8 Tops Reasons to Make Lists ...](https://lifestyle.allwomenstalk.com/tops-reasons-to-make-lists/)
 

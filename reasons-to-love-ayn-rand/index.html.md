@@ -42,16 +42,16 @@ Have you read any novels by Ayn Rand?
 
 ## Related Posts
 
+- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
 - [why did we stop wearing capes](https://fashion.allwomenstalk.com/reasons-to-love-wearing-a-cape/)
 - [beautiful biracial girls](https://inspiration.allwomenstalk.com/readerknows-this-is-why-its-beautiful-to-be-a-biracial-child/)
-- [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
-- [the boyfriend netflix](https://funny.allwomenstalk.com/why-netflix-is-even-better-than-a-boyfriend/)
+- [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
 - [chandler dance gif](https://lifestyle.allwomenstalk.com/why-its-oh-so-easy-to-relate-to-chandler-bing/)
 - [how many people watch the pll](https://movies.allwomenstalk.com/this-is-why-young-women-will-love-to-watch-pretty-little-liars/)
-- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
+- [how long should you hug](https://love.allwomenstalk.com/why-a-hug-is-better-than-a-kiss/)
 - [girls who lift](https://fitness.allwomenstalk.com/why-girls-who-lift-are-super-sexy/)
-- [better than your boyfriend](https://funny.allwomenstalk.com/reasons-netflix-is-better-than-a-boyfriend/)
 - [i wish i was curvy](https://lifestyle.allwomenstalk.com/heres-why-its-great-to-be-a-curvy-girl/)
+- [the cutest couple in the world](https://celebs.allwomenstalk.com/this-is-why-chip-and-joanna-are-the-cutest-couple-around/)
 - [5 Reasons Why I Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-twilight/)
 - [7 Reasons to Love Single Life ...](https://lifestyle.allwomenstalk.com/reasons-to-love-single-life/)
 

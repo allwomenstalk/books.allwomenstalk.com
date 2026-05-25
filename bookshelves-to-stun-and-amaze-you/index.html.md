@@ -223,16 +223,16 @@ I hope these ideas have inspired you to make over your shelves. Do you like the 
 
 ## Related Posts
 
-- [diy kitchen tiles](https://diy.allwomenstalk.com/examples-of-kitchen-tile-that-you-can-do-yourself/)
-- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
-- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
-- [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
 - [fantastic furniture pillows](https://lifestyle.allwomenstalk.com/fantastic-throw-pillows-to-make-your-life-even-happier/)
-- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
 - [colour coordinated closet](https://fashion.allwomenstalk.com/dream-closets-we-all-dream-of/)
-- [home industrial style](https://diy.allwomenstalk.com/stunning-examples-of-industrial-style-homes/)
-- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
 - [mexico bathroom](https://diy.allwomenstalk.com/stunning-new-mexican-decor-ideas-you-can-totally-copy/)
+- [dorm coffee table](https://teen.allwomenstalk.com/ways-to-revamp-your-dorm-room/)
+- [baby shower girl decoration ideas](https://parenting.allwomenstalk.com/super-cute-baby-shower-decorations-to-make-your-party-the-best/)
+- [ikea craft table hack with storage](https://diy.allwomenstalk.com/ikea-hacks-anyone-can-do/)
+- [diy kitchen tiles](https://diy.allwomenstalk.com/examples-of-kitchen-tile-that-you-can-do-yourself/)
+- [home industrial style](https://diy.allwomenstalk.com/stunning-examples-of-industrial-style-homes/)
+- [storage ideas for a small apartment](https://diy.allwomenstalk.com/diy-storage-ideas-for-small-apartments/)
+- [luxury bathroom quotes](https://inspiration.allwomenstalk.com/luxury-bathrooms-that-will-totally-awe-you/)
 - [10 Gorgeous Wall Hangings from IKEA ...](https://allwomenstalk.com/10-gorgeous-wall-hangings-from-ikea/)
 - [15 Simple but Awesome DIY Shelf Ideas ...](https://lifestyle.allwomenstalk.com/simple-but-awesome-diy-shelf-ideas/)
 

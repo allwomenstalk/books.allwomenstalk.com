@@ -56,16 +56,16 @@ Reading will not only make you happier, but it'll keep your mind healthy. That's
 
 ## Related Posts
 
-- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [famous opening lines of childrens books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
 - [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
 - [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
-- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [8 Ways to Promote Early Reading ...](https://parenting.allwomenstalk.com/8-ways-to-promote-early-reading/)
 - [12 Ways to Make More Free Time during the Day ...](https://allwomenstalk.com/12-ways-to-make-more-free-time-during-the-day/)
 

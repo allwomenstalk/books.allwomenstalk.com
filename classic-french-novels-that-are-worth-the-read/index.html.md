@@ -56,16 +56,16 @@ Although it's always best to read a novel in the original language, a translatio
 
 ## Related Posts
 
-- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
-- [classic books every woman should read](https://books.allwomenstalk.com/classic-books-every-girl-must-read-at-least-once/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
+- [classic books every woman should read](https://books.allwomenstalk.com/classic-books-every-girl-must-read-at-least-once/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
 - [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [best books to change life](https://books.allwomenstalk.com/psychology-books-thatll-change-your-life-completely/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [books like almost famous](https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/)
 - [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [best books to change life](https://books.allwomenstalk.com/psychology-books-thatll-change-your-life-completely/)
-- [books like almost famous](https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [8 Great Romantic Novels to Read on Vacation ...](https://allwomenstalk.com/8-great-romantic-novels-to-read-on-vacation/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

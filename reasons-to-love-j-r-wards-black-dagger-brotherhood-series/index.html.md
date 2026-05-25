@@ -42,16 +42,16 @@ What about you ladies? What are the things you loved the most and would you sugg
 
 ## Related Posts
 
-- [i love doctor who](https://movies.allwomenstalk.com/reasons-to-love-doctor-who/)
-- [forever 21 dupes](https://fashion.allwomenstalk.com/reaons-we-love-forever-21/)
-- [northern downpour lyrics](https://music.allwomenstalk.com/reasons-why-you-should-listen-to-panic-at-the-disco/)
-- [connie falconeri](https://movies.allwomenstalk.com/reasons-why-you-should-be-watching-general-hospital/)
-- [percy jackson writing style](https://books.allwomenstalk.com/reasons-to-read-rick-riordans-work/)
-- [7 Reasons It is Great to Be a Bitch ...](https://lifestyle.allwomenstalk.com/reasons-it-is-great-to-be-a-bitch/)
-- [romance crime shows](https://movies.allwomenstalk.com/reasons-why-we-love-crime-shows-that-boost-our-heart-rate/)
-- [country boy i love u](https://love.allwomenstalk.com/reasons-to-love-a-country-boy/)
-- [twitter i love you](https://lifestyle.allwomenstalk.com/reasons-as-to-why-people-love-twitter-like-theres-no-tomorrow/)
 - [why dont i like country music](https://music.allwomenstalk.com/reasons-to-love-country-music/)
+- [northern downpour lyrics](https://music.allwomenstalk.com/reasons-why-you-should-listen-to-panic-at-the-disco/)
+- [twitter i love you](https://lifestyle.allwomenstalk.com/reasons-as-to-why-people-love-twitter-like-theres-no-tomorrow/)
+- [7 Reasons It is Great to Be a Bitch ...](https://lifestyle.allwomenstalk.com/reasons-it-is-great-to-be-a-bitch/)
+- [connie falconeri](https://movies.allwomenstalk.com/reasons-why-you-should-be-watching-general-hospital/)
+- [country boy i love u](https://love.allwomenstalk.com/reasons-to-love-a-country-boy/)
+- [percy jackson writing style](https://books.allwomenstalk.com/reasons-to-read-rick-riordans-work/)
+- [romance crime shows](https://movies.allwomenstalk.com/reasons-why-we-love-crime-shows-that-boost-our-heart-rate/)
+- [forever 21 dupes](https://fashion.allwomenstalk.com/reaons-we-love-forever-21/)
+- [i love doctor who](https://movies.allwomenstalk.com/reasons-to-love-doctor-who/)
 - [5 Reasons Why I Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-why-i-love-twilight/)
 - [5 Reasons to Love Edward ...](https://twilight.allwomenstalk.com/5-reasons-to-love-edward/)
 

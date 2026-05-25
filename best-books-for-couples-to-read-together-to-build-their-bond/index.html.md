@@ -147,16 +147,16 @@ Do you and your partner’s reading tastes usually collide or are they in sync? 
 
 ## Related Posts
 
-- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
 - [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
-- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
-- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
-- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
 - [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
 - [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
-- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
+- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
+- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
+- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
 - [10 Romantic Things to do with Your Partner ...](https://allwomenstalk.com/10-romantic-things-to-do-with-your-partner/)
 - [7 Teen Books about Relationships ...](https://allwomenstalk.com/7-teen-books-about-relationships/)
 
