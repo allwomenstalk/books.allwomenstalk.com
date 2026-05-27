@@ -3,7 +3,7 @@ title: "8 Things We Now Know about Harry Potter and the Cursed Child ..."
 description: "It's a Sequel, Not a Prequel; The Story Stars Albus; It's a Play!; It's Going to Be Epic; It's Still a J. K. Rowling Masterpiece; More ..."
 url: "https://books.allwomenstalk.com/things-we-now-know-about-harry-potter-and-the-cursed-child/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Things We Now Know about Harry Potter and the Cursed Child ...
@@ -64,15 +64,15 @@ h/t: [pottermore.com](https://www.wizardingworld.com/news/cursed-child-eighth-ha
 
 ## Related Posts
 
-- [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
-- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
 - [south park with apologies to jesse jackson videos](https://movies.allwomenstalk.com/times-south-parks-social-commentary-made-you-horror-laugh/)
-- [mount etna star wars](https://travel.allwomenstalk.com/stars-wars-travel-on-planet-earth/)
-- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
-- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
 - [the black whopper](https://food.allwomenstalk.com/the-curse-of-the-black-whopper-of-the-most-wtf-fast-food-items/)
-- [sky sins height](https://love.allwomenstalk.com/short-story-the-bachelorette/)
 - [paris riche primped and](https://lifestyle.allwomenstalk.com/videos-thatll-teach-you-how-to-draw/)
+- [mount etna star wars](https://travel.allwomenstalk.com/stars-wars-travel-on-planet-earth/)
+- [saucy story](https://love.allwomenstalk.com/short-story-high-school-reunion/)
+- [deepawali 2015](https://travel.allwomenstalk.com/happy-diwali/)
+- [if the shoe fits trailer rob lowe](https://movies.allwomenstalk.com/cinderella-the-fairytale-told-many-times-over/)
+- [kcd elements](https://lifestyle.allwomenstalk.com/get-your-science-on-with-these-sweet-sketches/)
+- [sky sins height](https://love.allwomenstalk.com/short-story-the-bachelorette/)
 - [any](https://movies.allwomenstalk.com/teen-shows-you-can-enjoy-at-any-age/)
 - [7 Minor Harry Potter Characters ...](https://movies.allwomenstalk.com/minor-harry-potter-characters/)
 - [7 Reasons to Watch Harry Potter Movies ...](https://movies.allwomenstalk.com/reasons-to-watch-harry-potter-movies/)

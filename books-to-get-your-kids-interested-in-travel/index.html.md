@@ -3,7 +3,7 @@ title: "7 Books to Get Your Kids Interested in Travel ..."
 description: "It’s Vacation Time; Around the World in Eighty Days; All the World; How to Make an Apple Pie and See the World; Follow That Map: a First Book of Mapping Skills; More ..."
 url: "https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Books to Get Your Kids Interested in Travel ...
@@ -56,16 +56,16 @@ This is just a very small selection of books that inspire kids to travel. Really
 
 ## Related Posts
 
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
 - [7 Tips for Travelling with Children ...](https://travel.allwomenstalk.com/tips-for-travelling-with-children/)
 - [7 Tips for Traveling with Small Children ...](https://parenting.allwomenstalk.com/tips-for-traveling-with-small-children/)
 

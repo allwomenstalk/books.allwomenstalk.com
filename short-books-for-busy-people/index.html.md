@@ -3,7 +3,7 @@ title: "Short Books for Busy People Who Want to Read More ..."
 description: "Home by Toni Morrison; Animal Farm by George Orwell; Drown by Junot Diaz; The Strange Case of Dr. Jekyll and Mr. Hyde by Robert Louis Stevenson; We Have Always Lived in the Castle by Shirley Jackson; More ..."
 url: "https://books.allwomenstalk.com/short-books-for-busy-people/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Short Books for Busy People  Who Want to Read  More ...

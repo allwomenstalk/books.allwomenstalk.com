@@ -3,7 +3,7 @@ title: "7 Thrilling Novels Gone Girl Fans Will Adore ..."
 description: "The Girl on the Train by Paula Hawkins; What Was She Thinking by Zoe Heller; Dangerous Girls by Abigail Haas; Save Yourself by Kelly Braffet; The Silent Wife by a.E Harrison; More ..."
 url: "https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Thrilling Novels Gone Girl Fans Will Adore ...
@@ -56,16 +56,16 @@ It's rare to find a novel as chilling as Gone Girl, but there are plenty of book
 
 ## Related Posts
 
+- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
+- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
+- [Celeb Autobiographies You Need on Your Coffee Tabl...](https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/)
 - [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
+- [Here Are the Books You Must Devour before You Turn...](https://books.allwomenstalk.com/here-are-the-books-you-must-devour-before-you-turn/)
+- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
 - [Want to Be a Writer Heres How to Publish Your Own ...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
 - [You Wont Want to Sleep Once You Start Reading Thes...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
 - [Love the Divergent Series then Youll Love These Bo...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
-- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
-- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
-- [Celeb Autobiographies You Need on Your Coffee Tabl...](https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/)
-- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
-- [Here Are the Books You Must Devour before You Turn...](https://books.allwomenstalk.com/here-are-the-books-you-must-devour-before-you-turn/)
-- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

@@ -3,7 +3,7 @@ title: "18 Deaths from Popular Literature That Shattered Our Hearts ..."
 description: "Fred Weasley in Harry Potter and the Deathly Hallows; Sirius Black in Harry Potter and the Order of the Phoenix; Beth March in Little Women; Rue in the Hunger Games Series; Primrose Everdeen in the Hunger Games Series; More ..."
 url: "https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 18 Deaths from Popular Literature That Shattered Our Hearts ...
@@ -122,16 +122,16 @@ This is just the tip of the iceberg. These are just the literary deaths that dee
 
 ## Related Posts
 
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
+- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
 - [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
 - [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
-- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
-- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
-- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
-- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
+- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
 - [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
 - [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
-- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
+- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
+- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
+- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 

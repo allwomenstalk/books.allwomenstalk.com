@@ -3,7 +3,7 @@ title: "7 Books from High School You Should Re-Read ..."
 description: "Romeo and Juliet by William Shakespeare; Sophie’s Choice by William Styron; My Sister’s Keeper by Jody Picoult; She’s Come Undone by Wally Lamb; Little Women by Louisa May Alcott; More ..."
 url: "https://books.allwomenstalk.com/books-from-high-school-you-should-re-read/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Books from High School You Should Re\-Read ...
@@ -66,16 +66,16 @@ Refreshing your mind with the stories from your teenage years is fun and interes
 
 ## Related Posts
 
-- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
 - [raw vegan recipe book](https://books.allwomenstalk.com/fabulous-raw-food-books-to-read/)
-- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
-- [peter pan decoration ideas](https://parenting.allwomenstalk.com/cute-baby-shower-ideas-based-on-books/)
-- [jokes aside artinya](https://books.allwomenstalk.com/books-to-read-more-than-once/)
-- [booksontape](https://books.allwomenstalk.com/beautifully-read-books-on-tape/)
+- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
+- [natural beauty booksy](https://books.allwomenstalk.com/great-natural-beauty-books/)
 - [the lost series books](https://books.allwomenstalk.com/book-series-to-get-lost-in-this-summer/)
 - [reading inspirational books](https://books.allwomenstalk.com/inspirational-books-to-read-this-summer/)
+- [booksontape](https://books.allwomenstalk.com/beautifully-read-books-on-tape/)
+- [jokes aside artinya](https://books.allwomenstalk.com/books-to-read-more-than-once/)
+- [peter pan decoration ideas](https://parenting.allwomenstalk.com/cute-baby-shower-ideas-based-on-books/)
+- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
 - [uses for old books](https://diy.allwomenstalk.com/creative-things-to-do-with-old-books/)
-- [natural beauty booksy](https://books.allwomenstalk.com/great-natural-beauty-books/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

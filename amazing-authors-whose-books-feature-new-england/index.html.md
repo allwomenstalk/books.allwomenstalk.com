@@ -3,7 +3,7 @@ title: "7 Amazing Authors Whose Books Feature New England ..."
 description: "Stephen King; John Irving; Wally Lamb; Grace Metalious; Nathaniel Hawthorne; More ..."
 url: "https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Amazing Authors Whose Books Feature New England ...
@@ -56,16 +56,16 @@ There are many other writers whose books feature New England, of course, authors
 
 ## Related Posts
 
-- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
 - [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
 - [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
+- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
+- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
 - [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
-- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
 - [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
-- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
 - [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 

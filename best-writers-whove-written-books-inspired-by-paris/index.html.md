@@ -3,7 +3,7 @@ title: "7 Best Writers Whove Written Books Inspired by Paris ..."
 description: "Ernest Hemingway; Gertrude Stein; F. Scott Fitzgerald; James Joyce; Samuel Beckett; More ..."
 url: "https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Best Writers Whove Written Books Inspired by Paris ...
@@ -56,15 +56,15 @@ So many novels and short stories from these authors, and we're not even halfway 
 
 ## Related Posts
 
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
 - [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [9 Divine Movies Set in Paris ...](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)

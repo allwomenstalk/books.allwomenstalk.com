@@ -3,7 +3,7 @@ title: "7 Sequels That Were Not Penned by the Authors of the Originals ..."
 description: "Gone with the Wind/Scarlett; The Girl with the Dragon Tattoo/un-named Sequel(s); Jeeves and Wooster/Wodehouse V Faulks; James Bond/Various; Jane Eyre/Wide Sargasso Sea; More ..."
 url: "https://books.allwomenstalk.com/sequels-that-were-not-penned-by-the-authors-of-the-originals/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Sequels That Were Not Penned by the Authors of the Originals ...
@@ -56,16 +56,16 @@ I’d love to know what you think in general about the issue of sequels written 
 
 ## Related Posts
 
-- [cory topanga first kiss episode](https://movies.allwomenstalk.com/best-boy-meets-world-episodes/)
-- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
 - [300 movie villain images](https://movies.allwomenstalk.com/of-the-most-ridiculous-movie-villains-ever/)
-- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
-- [victorian house in england](https://lifestyle.allwomenstalk.com/dangerous-things-in-homes-of-victorian-england/)
-- [doggett orange is the new black](https://movies.allwomenstalk.com/amazing-orange-is-the-new-black-characters/)
-- [addictive series](https://movies.allwomenstalk.com/addictive-tv-shows-you-simply-must-check-out/)
-- [is extreme cheapskates staged](https://movies.allwomenstalk.com/reality-tv-programs-that-are-my-guilty-pleasures/)
-- [seth macfarlane characters in family guy](https://movies.allwomenstalk.com/awesome-characters-voiced-by-seth-marfarlane/)
+- [cory topanga first kiss episode](https://movies.allwomenstalk.com/best-boy-meets-world-episodes/)
 - [lorelai gilmore nails](https://movies.allwomenstalk.com/of-the-most-touching-moments-on-gilmore-girls/)
+- [addictive series](https://movies.allwomenstalk.com/addictive-tv-shows-you-simply-must-check-out/)
+- [seth macfarlane characters in family guy](https://movies.allwomenstalk.com/awesome-characters-voiced-by-seth-marfarlane/)
+- [doggett orange is the new black](https://movies.allwomenstalk.com/amazing-orange-is-the-new-black-characters/)
+- [adam devine blink 182](https://movies.allwomenstalk.com/of-the-best-workaholics-moments/)
+- [most emotional modern family episodes](https://movies.allwomenstalk.com/incredibly-emotional-scenes-from-how-i-met-your-mother/)
+- [is extreme cheapskates staged](https://movies.allwomenstalk.com/reality-tv-programs-that-are-my-guilty-pleasures/)
+- [victorian house in england](https://lifestyle.allwomenstalk.com/dangerous-things-in-homes-of-victorian-england/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [7 Sequels That Were Better than the Original ...](https://movies.allwomenstalk.com/7-sequels-that-were-better-than-the-original/)
 

@@ -3,7 +3,7 @@ title: "SciFi and Fantasy Books Set in Unusual Time Periods for Girls Who like t
 description: "Past Imperative by Dave Duncan; Mistborn: the Final Empire by Brandon Sanderson; Leviathan by Scott Westerfeld; Thieftaker by D.B. Jackson; The Alchemist of Souls by Anne Lyle; More ..."
 url: "https://books.allwomenstalk.com/scifi-and-fantasy-books-set-in-unusual-time-periods/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # SciFi and Fantasy Books Set in Unusual Time Periods for Girls Who like the Extraordinary ...
@@ -56,16 +56,16 @@ Have you read any of these books before?
 
 ## Related Posts
 
-- [books that are being turned into movies](https://movies.allwomenstalk.com/remarkable-books-that-are-being-made-into-movies/)
-- [The Books on the Longlist for the Baileys Prize fo...](https://books.allwomenstalk.com/the-books-on-the-longlist-for-the-baileys-prize-for-womens-fiction/)
-- [best non fiction books to read on vacation](https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/)
-- [Books to Read for Women Curious about Womens Right...](https://books.allwomenstalk.com/read-these-books-to-learn-more-about-womens-rights/)
-- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
-- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
-- [10 Quick and Quirky  Reads for Women Who Love a Go...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
-- [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
-- [lee hyeon seo memoir](https://books.allwomenstalk.com/autobiography-lovers-will-love-to-read-these-memoirs/)
 - [books like slaughterhouse five](https://books.allwomenstalk.com/books-you-wont-find-on-a-syllabus-that-every-teenager-should-read/)
+- [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
+- [10 Quick and Quirky  Reads for Women Who Love a Go...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
+- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
+- [Books to Read for Women Curious about Womens Right...](https://books.allwomenstalk.com/read-these-books-to-learn-more-about-womens-rights/)
+- [best non fiction books to read on vacation](https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/)
+- [books that are being turned into movies](https://movies.allwomenstalk.com/remarkable-books-that-are-being-made-into-movies/)
+- [lee hyeon seo memoir](https://books.allwomenstalk.com/autobiography-lovers-will-love-to-read-these-memoirs/)
+- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
+- [The Books on the Longlist for the Baileys Prize fo...](https://books.allwomenstalk.com/the-books-on-the-longlist-for-the-baileys-prize-for-womens-fiction/)
 - [Illuminating Books for Women in Their 20s ...](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [Fantastic Books Written by Your Favorite Funny Wom...](https://books.allwomenstalk.com/books-by-funny-women-you-must-read-soon/)
 

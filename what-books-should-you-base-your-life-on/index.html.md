@@ -3,7 +3,7 @@ title: "What Books Should You Base Your Life on?"
 description: "The Great Gatsby by F. Scott Fitzgerald; Fight Club by Chuck Palahniuk; The Black Swan by Nassim Nicholas Taleb; White Oleander by Janet Fitch; The Hotel New Hampshire by John Irving; More ..."
 url: "https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # What Books Should You Base Your Life on?
@@ -104,16 +104,16 @@ What books do you live your life by?
 
 ## Related Posts
 
-- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
+- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
+- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
 - [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
 - [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
-- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
-- [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
 - [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
 - [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
-- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [10 Ways to Help You Decide What You Want to do wit...](https://inspiration.allwomenstalk.com/ways-to-help-you-decide-what-you-want-to-do-with-your-life/)
 - [10 Simple Ways to Have Meaning in Your Life ...](https://inspiration.allwomenstalk.com/simple-ways-to-have-meaning-in-your-life/)
 

@@ -3,7 +3,7 @@ title: "7 Books Set in the 50s You Wont Be Able to Put down ..."
 description: "Wishing You Were Here by Catherine Chant; Catcher in the Rye by J.D. Salinger; Breakfast at Tifany’s by Truman Capote; Bunny Lake is Missing by Evelyn Piper; East of Eden by John Steinbeck; More ..."
 url: "https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/"
 category: "books"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Books Set in the 50s You Wont Be Able to Put down ...
@@ -74,16 +74,16 @@ The 50s are an exciting time to read about, which is why these books are hard to
 
 ## Related Posts
 
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
-- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
 - [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
+- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Must Read Literary Classics ...](https://allwomenstalk.com/7-must-read-literary-classics/)
 
