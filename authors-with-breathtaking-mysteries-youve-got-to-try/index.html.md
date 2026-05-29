@@ -3,7 +3,7 @@ title: "7 Authors with Breathtaking Mysteries Youve Got to Try ..."
 description: "Greg Iles; Linda Castillo; James Patterson; Tess Gerritsen; John Grisham; More ..."
 url: "https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Authors with Breathtaking Mysteries Youve Got to Try ...
@@ -56,16 +56,16 @@ Who’s your favorite mystery author? Give me some new books to read.
 
 ## Related Posts
 
-- [the storytellers daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [alligator spaghetti childrens book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
 - [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [yoga for womens health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
-- [alligator spaghetti childrens book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [the storytellers daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [7 Cool Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-cool-paranormal-blogs/)
 - [7 of My Favorite Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-of-my-favorite-paranormal-blogs/)
 

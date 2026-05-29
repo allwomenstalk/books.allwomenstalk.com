@@ -3,7 +3,7 @@ title: "Book Series You Have to Commit to ..."
 description: "Discworld Series by Terry Pratchett; Outlander by Diana Gabaldon; The Wheel of Time Series by Robert Jordan; Hercule Poirot Stories by Agatha Christie; Nancy Drew Stories by Carolyn Keene; More ..."
 url: "https://books.allwomenstalk.com/book-series-you-have-to-commit-to/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Book Series You Have to Commit to ...
@@ -181,16 +181,16 @@ What series would you recommend?
 
 ## Related Posts
 
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
 - [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
 - [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
-- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [7 Celebrity Self-Help Books You Probably Shouldnt ...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 - [7 Things to Be Serious about ...](https://7fun.net/7-things-to-be-serious-about/)
 

@@ -3,7 +3,7 @@ title: "9 of the Most Thrilling Crime Books for Kindle ..."
 description: "The Husband's Secret by Liane Moriarty; The Killing Room by Richard Montanari; The Wronged Sons by John Marrs; A Cry in the Night by Mary Higgins Clark; The Hypnotist by Lars Kepler; More ..."
 url: "https://books.allwomenstalk.com/of-the-most-thrilling-crime-books-for-kindle/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 9 of the Most Thrilling Crime Books for Kindle ...
@@ -68,16 +68,16 @@ Owning a Kindle means that I spend much more time reading - I've saved a fortune
 
 ## Related Posts
 
-- [7 Young Adult Books That Every Middle Schooler Sho...](https://books.allwomenstalk.com/young-adult-books-that-every-middle-schooler-should-read/)
-- [7 Books Written by Celebrities That Are Worth Chec...](https://books.allwomenstalk.com/books-written-by-celebrities-that-are-worth-checking-out/)
-- [7 Terrific Books Bibliophiles Will Love ...](https://books.allwomenstalk.com/terrific-books-bibliophiles-will-love/)
-- [7 Awesome Free Books to Download to Your Kindle .....](https://books.allwomenstalk.com/awesome-books-to-download-on-your-kindle-for-free/)
-- [top spiritual magazines](https://books.allwomenstalk.com/super-magazines-to-boost-your-spirits/)
-- [Awesome British Literary Classics Everyone Should ...](https://books.allwomenstalk.com/awesome-british-literary-classics-everyone-should-read/)
 - [young adult readers](https://books.allwomenstalk.com/young-adult-books-adult-readers-will-enjoy/)
-- [7 of the Most Romantic Reads for Spring on Kindle ...](https://books.allwomenstalk.com/of-the-most-romantic-reads-for-spring-on-kindle/)
-- [7 Marvelous Websites for Free E-books ...](https://books.allwomenstalk.com/marvelous-websites-for-free-e-books/)
+- [Awesome British Literary Classics Everyone Should ...](https://books.allwomenstalk.com/awesome-british-literary-classics-everyone-should-read/)
 - [starting a busniess](https://books.allwomenstalk.com/books-to-read-before-you-start-your-own-business/)
+- [7 Awesome Free Books to Download to Your Kindle .....](https://books.allwomenstalk.com/awesome-books-to-download-on-your-kindle-for-free/)
+- [7 Books Written by Celebrities That Are Worth Chec...](https://books.allwomenstalk.com/books-written-by-celebrities-that-are-worth-checking-out/)
+- [7 Young Adult Books That Every Middle Schooler Sho...](https://books.allwomenstalk.com/young-adult-books-that-every-middle-schooler-should-read/)
+- [top spiritual magazines](https://books.allwomenstalk.com/super-magazines-to-boost-your-spirits/)
+- [7 of the Most Romantic Reads for Spring on Kindle ...](https://books.allwomenstalk.com/of-the-most-romantic-reads-for-spring-on-kindle/)
+- [7 Terrific Books Bibliophiles Will Love ...](https://books.allwomenstalk.com/terrific-books-bibliophiles-will-love/)
+- [7 Marvelous Websites for Free E-books ...](https://books.allwomenstalk.com/marvelous-websites-for-free-e-books/)
 - [9 Great Free Amazon Books for Kindle ...](https://lifestyle.allwomenstalk.com/great-free-amazon-books-for-kindle/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

@@ -3,7 +3,7 @@ title: "Inside the World of Yachts: The Impossible Collection by Assouline..."
 description: "The Majesty of Yachts; A Sailor's Dream; The Ocean's Timeless Call; More ..."
 url: "https://books.allwomenstalk.com/yachts-the-impossible-collection/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Inside the World of Yachts: The Impossible Collection by Assouline...

@@ -3,7 +3,7 @@ title: "7 of My Favorite Authors That Have Inspired Me ..."
 description: "Edgar Allan Poe; Junot Diaz; Sir Arthur Conan Doyle; John Steinbeck; Sandra Cisneros; More ..."
 url: "https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 of My Favorite Authors That Have Inspired Me ...
@@ -56,16 +56,16 @@ This barely scratches the surface of the amount of compelling authors that have 
 
 ## Related Posts
 
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
-- [yoga for womens health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [alligator spaghetti childrens book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
 - [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [alligator spaghetti childrens book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
 - [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
-- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
+- [yoga for womens health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

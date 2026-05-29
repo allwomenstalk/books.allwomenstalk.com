@@ -3,7 +3,7 @@ title: "8 Fictional Men We Want to Marry ..."
 description: "Mr Darcy; Mr Rochester; James Bond; Romeo Montague; Count Dracula; More ..."
 url: "https://books.allwomenstalk.com/fictional-men-we-want-to-marry/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Fictional Men We Want to Marry ...
@@ -46,16 +46,16 @@ Of course, there are a couple of obvious ones I could have included on this list
 
 ## Related Posts
 
-- [what do you love most about your partner](https://love.allwomenstalk.com/great-personality-traits-that-make-a-guy-perfect-boyfriend-material/)
-- [what do girls love](https://love.allwomenstalk.com/common-ways-girls-use-men/)
+- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
 - [woman are amazing](https://love.allwomenstalk.com/qualities-of-an-amazing-woman-to-attract-the-man-of-your-dreams/)
+- [what do you love most about your partner](https://love.allwomenstalk.com/great-personality-traits-that-make-a-guy-perfect-boyfriend-material/)
 - [how to roll sleeves female](https://love.allwomenstalk.com/strange-things-we-find-sexy-about-guys/)
-- [7 Biggest Misconceptions Most People Have about Bi...](https://lifestyle.allwomenstalk.com/big-misconceptions-about-bisexual-women/)
-- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
 - [should i tell her my feelings](https://love.allwomenstalk.com/ways-men-express-their-feelings-that-you-should-know-about/)
+- [what do girls love](https://love.allwomenstalk.com/common-ways-girls-use-men/)
+- [7 Biggest Misconceptions Most People Have about Bi...](https://lifestyle.allwomenstalk.com/big-misconceptions-about-bisexual-women/)
 - [dating websites for men](https://love.allwomenstalk.com/types-of-guys-youll-meet-on-online-dating-websites/)
 - [types of guys to date](https://love.allwomenstalk.com/types-of-men-to-avoid/)
-- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
+- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [7 Inspiring Male Characters from Movies ...](https://movies.allwomenstalk.com/inspiring-male-characters-from-movies/)
 

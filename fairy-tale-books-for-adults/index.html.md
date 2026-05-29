@@ -3,7 +3,7 @@ title: "11 Fairy Tale Books for Adults to Enjoy when Theyre Still Young at Heart
 description: "Miss Peregrine's Home for Peculiar Children (Ransom Riggs); The Sleeper and the Spindle (Neil Gaiman); The Book of Lost Things (John Connolly); The Night Circus (Erin Morgenstern); Beautiful Creatures (Kami Garcia & Margaret Stohl); More ..."
 url: "https://books.allwomenstalk.com/fairy-tale-books-for-adults/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 11 Fairy Tale Books for Adults to Enjoy when Theyre Still Young at Heart ...
@@ -82,15 +82,15 @@ These are just some of the fantastic fairytales for adults than you can enjoy. T
 
 ## Related Posts
 
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
 - [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Incredible Childrens Books ...](https://allwomenstalk.com/7-incredible-childrens-books/)

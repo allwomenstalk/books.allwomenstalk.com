@@ -3,7 +3,7 @@ title: "7 Must Read Business Leader Biographies Thatll Give You Tips to Succeed 
 description: "Idea Man: a Memoir by the Cofounder of Microsoft – Paul Allen; Losing My Virginity: How I Survived, Had Fun, and Made a Fortune Doing Business My Way – Richard Branson; Walt Disney: an American Original – Bob Thomas; Built from Scratch: How a Couple of Regular Guys Grew the Home Depot from Nothing to $30 Billion – Bernie Marcus, Arthur Blank; Wild Company: the Untold Story of Banana Republic – Mel and Patricia Ziegler; More ..."
 url: "https://books.allwomenstalk.com/must-read-business-leader-biographies-thatll-give-you-tips-to-succeed/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Must Read Business Leader Biographies Thatll Give You Tips to Succeed ...
@@ -66,15 +66,15 @@ Sources:
 
 ## Related Posts
 
-- [things to do at work to look busy](https://lifestyle.allwomenstalk.com/ways-to-look-busy-at-work-when-youre-slacking/)
 - [good paying jobs teens](https://money.allwomenstalk.com/the-best-part-time-jobs-for-busy-teens/)
-- [positive body language in the workplace](https://lifestyle.allwomenstalk.com/body-language-you-should-use-in-the-workplace/)
 - [covering tattoos with other tattoos](https://beauty.allwomenstalk.com/methods-for-covering-up-your-tattoos-at-work/)
-- [job searching mistakes](https://money.allwomenstalk.com/dont-make-these-mistakes-during-your-job-hunt/)
+- [positive body language in the workplace](https://lifestyle.allwomenstalk.com/body-language-you-should-use-in-the-workplace/)
 - [guarantee interview qas](https://money.allwomenstalk.com/interview-tips-thatll-guarantee-youll-get-a-position/)
-- [desk organization diy](https://diy.allwomenstalk.com/use-these-desk-organization-ideas-to-get-yourself-together/)
 - [novel and adaptive thinking meaning](https://money.allwomenstalk.com/work-skills-youll-need-to-be-successful-in-the-future/)
 - [without math](https://money.allwomenstalk.com/well-paying-jobs-you-dont-need-a-degree-for/)
+- [things to do at work to look busy](https://lifestyle.allwomenstalk.com/ways-to-look-busy-at-work-when-youre-slacking/)
+- [desk organization diy](https://diy.allwomenstalk.com/use-these-desk-organization-ideas-to-get-yourself-together/)
+- [job searching mistakes](https://money.allwomenstalk.com/dont-make-these-mistakes-during-your-job-hunt/)
 - [new girl the office](https://lifestyle.allwomenstalk.com/how-to-make-friends-when-new-in-the-office/)
 - [7 Simple Secrets of Success ...](https://lifestyle.allwomenstalk.com/simple-secrets-of-success/)
 - [7 Must Know Tips for Starting a New Business ...](https://allwomenstalk.com/must-know-tips-for-starting-a-new-business/)

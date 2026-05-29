@@ -3,7 +3,7 @@ title: "7 Inspiring Travel Books Perfect for Your Coffee Table ..."
 description: "100 Places in Italy Every Woman Should Visit; National Geographic Simply Beautiful Photographs; Paris in Color; Conde Nast Traveler: 25 Years of Photography; The World is a Kitchen; More ..."
 url: "https://books.allwomenstalk.com/inspiring-travel-books-perfect-for-your-coffee-table/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Inspiring Travel Books Perfect for Your Coffee Table ...
@@ -42,16 +42,16 @@ As you might guess, I love travel books. For me they serve as reminders of past 
 
 ## Related Posts
 
-- [pros and cons of digital books](https://books.allwomenstalk.com/pros-and-cons-of-electronic-books-over-regular-books/)
-- [may i turn off the television](https://books.allwomenstalk.com/reasons-to-turn-off-the-television-and-pick-up-a-book/)
 - [7 Amazing Plays I Love to Read Again and Again ...](https://books.allwomenstalk.com/amazing-plays-i-love-to-read-again-and-again/)
 - [shebra meaning](https://books.allwomenstalk.com/old-school-ya-books-that-transport-you-to-your-childhood/)
+- [7 Amazing Health Books That Will Change Your Life ...](https://health.allwomenstalk.com/amazing-health-books-that-will-change-your-life-forever/)
+- [7 Biographies Youll Want to Read ...](https://books.allwomenstalk.com/biographies-youll-want-to-read/)
 - [7 Awesome Biographies to Read on the Beach ...](https://books.allwomenstalk.com/awesome-biographies-to-read-on-the-beach/)
+- [pros and cons of digital books](https://books.allwomenstalk.com/pros-and-cons-of-electronic-books-over-regular-books/)
 - [7 Classic Childrens Books Everyone Can Appreciate ...](https://books.allwomenstalk.com/classic-childrens-books-everyone-can-appreciate/)
 - [7 Awesome Prize Winning Female Authors to Consider...](https://books.allwomenstalk.com/awesome-prize-winning-female-authors-to-consider-reading/)
-- [7 Amazing Health Books That Will Change Your Life ...](https://health.allwomenstalk.com/amazing-health-books-that-will-change-your-life-forever/)
+- [may i turn off the television](https://books.allwomenstalk.com/reasons-to-turn-off-the-television-and-pick-up-a-book/)
 - [7 Books to Read before Theyre Made into Movies ...](https://books.allwomenstalk.com/books-to-read-before-theyre-made-into-movies/)
-- [7 Biographies Youll Want to Read ...](https://books.allwomenstalk.com/biographies-youll-want-to-read/)
 - [10 Scintillatingly Interesting and Useful Travel B...](https://travel.allwomenstalk.com/scintillatingly-interesting-and-useful-travel-books-everyone-should-own/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

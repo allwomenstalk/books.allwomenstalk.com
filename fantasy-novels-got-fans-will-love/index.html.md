@@ -3,7 +3,7 @@ title: "Fantasy Novels GOT Fans Will Love ..."
 description: "The Sword of Truth by Terry Goodkind; The Inheritance Trilogy by N. K. Jemisin; The Kingkiller Chronicle by Patrick Rothfuss; The Codex Alera by Jim Butcher; Wheel of the Infinite – Martha Wells; More ..."
 url: "https://books.allwomenstalk.com/fantasy-novels-got-fans-will-love/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # Fantasy Novels GOT Fans Will Love ...
@@ -78,16 +78,16 @@ What’s on your fantasy reading list?
 
 ## Related Posts
 
-- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
-- [7 Novels about the Beach to Read in the Sand ...](https://books.allwomenstalk.com/novels-about-the-beach-to-read-in-the-sand/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
-- [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
-- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
-- [25 Kids Books You Simply Must Read Again as an Adu...](https://books.allwomenstalk.com/kids-books-you-simply-must-read-again-as-an-adult/)
-- [tess gerritson](https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/)
 - [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [25 Kids Books You Simply Must Read Again as an Adu...](https://books.allwomenstalk.com/kids-books-you-simply-must-read-again-as-an-adult/)
+- [7 Novels about the Beach to Read in the Sand ...](https://books.allwomenstalk.com/novels-about-the-beach-to-read-in-the-sand/)
+- [tess gerritson](https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/)
+- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
+- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [10 Thrilling Hugo Weaving Characters You Will Love...](https://movies.allwomenstalk.com/thrilling-hugo-weaving-characters/)
 

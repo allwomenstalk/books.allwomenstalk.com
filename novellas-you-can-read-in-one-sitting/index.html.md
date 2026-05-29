@@ -3,7 +3,7 @@ title: "7 Novellas You Can and Should Read in One Sitting for Girls Who Dont Wan
 description: "The Old Man and the Sea by Ernest Hemingway; The Awakening by Kate Chopin; The Call of Cthulhu by H.P. Lovecraft; The Pearl by John Steinbeck; Breakfast at Tiffany’s by Truman Capote; More ..."
 url: "https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/"
 category: "books"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Novellas You Can and Should  Read in One Sitting for Girls Who Dont Want Long Stories ...
@@ -71,15 +71,15 @@ Novellas can be just as thrilling as novels. The only difference is they take le
 ## Related Posts
 
 - [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 
