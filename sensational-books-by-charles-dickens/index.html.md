@@ -3,7 +3,7 @@ title: "7 Sensational Books by Charles Dickens ..."
 description: "Great Expectations; A Tale of Two Cities; A Christmas Carol; Oliver Twist; Bleak House; More ..."
 url: "https://books.allwomenstalk.com/sensational-books-by-charles-dickens/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Sensational Books by Charles Dickens ...
@@ -56,16 +56,16 @@ Charles Dickens is rightfully considered to be one of the greatest literary figu
 
 ## Related Posts
 
-- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
-- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
 - [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

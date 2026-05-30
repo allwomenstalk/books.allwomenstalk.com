@@ -3,7 +3,7 @@ title: "7 Lovely Books to Curl up with This Fall ..."
 description: "What Nora Knew by Linda Yellin; Not That Kind of Girl by Lena Dunham; THIS is WHERE I LEAVE YOU; Yes Please by Amy Poehler; The Best of Me by Nicholas Sparks; More ..."
 url: "https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Lovely Books to Curl up with This Fall ...
@@ -56,16 +56,16 @@ What are your recommendations for books this fall? Will you check any of these o
 
 ## Related Posts
 
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
-- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
 - [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
 - [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
 - [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
 - [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Best Books for Pool Side Reading ...](https://allwomenstalk.com/best-books-for-pool-side-reading/)
 

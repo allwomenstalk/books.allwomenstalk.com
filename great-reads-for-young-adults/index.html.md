@@ -3,7 +3,7 @@ title: "8 Great Reads for Young Adults ..."
 description: "Perfect Chemistry by Simone Elkeles; Leaving Paradise by Simone Elkeles; Wake by Lisa McMann; The Fault in Our Stars by John Green; Go Ask Alice by Anonymous; More ..."
 url: "https://books.allwomenstalk.com/great-reads-for-young-adults/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 8 Great Reads for Young Adults ...
@@ -69,12 +69,12 @@ These are just a few of my favorite reads for young adults. Each of these books 
 - [7 Habits Only BookLovers Understand ...](https://books.allwomenstalk.com/habits-only-booklovers-understand/)
 - [9 Amazing Childrens Books to Read ...](https://books.allwomenstalk.com/amazing-childrens-books-to-read/)
 - [7 Underrated Books You Must Read ...](https://books.allwomenstalk.com/underrated-books-you-must-read/)
-- [9 Amazing Short Books Anyone Can Find the Time to ...](https://books.allwomenstalk.com/amazing-short-books-anyone-can-find-the-time-to-read/)
-- [charles dickens books turned into movies](https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/)
-- [7 Quirky Literature Inspired Items Bibliophiles Mu...](https://books.allwomenstalk.com/quirky-literature-inspired-items-bibliophiles-must-see/)
-- [we can get them for you wholesale](https://funny.allwomenstalk.com/humorous-novels-and-short-stories-for-your-amusement/)
 - [7 Key Differences between Popular Books and Their ...](https://movies.allwomenstalk.com/key-differences-between-popular-books-and-their-film-adaptations/)
+- [7 Quirky Literature Inspired Items Bibliophiles Mu...](https://books.allwomenstalk.com/quirky-literature-inspired-items-bibliophiles-must-see/)
+- [9 Amazing Short Books Anyone Can Find the Time to ...](https://books.allwomenstalk.com/amazing-short-books-anyone-can-find-the-time-to-read/)
 - [7 Classic Just so Stories to Read to Your Children...](https://parenting.allwomenstalk.com/classic-just-so-stories-to-read-to-your-children/)
+- [charles dickens books turned into movies](https://movies.allwomenstalk.com/awesome-adaptations-of-charles-dickens-novels/)
+- [we can get them for you wholesale](https://funny.allwomenstalk.com/humorous-novels-and-short-stories-for-your-amusement/)
 - [7 Must-read Books about Travel to Charge Your Wand...](https://books.allwomenstalk.com/must-read-books-about-travel-to-charge-your-wanderlust/)
 - [8 Great Book Series for Tweens ...](https://allwomenstalk.com/8-great-book-series-for-tweens/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

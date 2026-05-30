@@ -3,7 +3,7 @@ title: "Itty Bitty Books for Girls Who Dont Have Much Free Time ..."
 description: "Animal Farm by George Orwell; Heart Burn by Nora Ephron; Who Will Run the Frog Hospital? by Lorrie Moore; The Body in the Library by Agatha Christie; The Sense of an Ending by Julian Barnes; More ..."
 url: "https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Itty Bitty Books for Girls Who Dont Have Much Free Time ...
@@ -56,16 +56,16 @@ Which of these books is on your reading list? What others would you add to the l
 
 ## Related Posts
 
-- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
 - [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
-- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
-- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
 - [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
+- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
 - [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
+- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
+- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
 - [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
-- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
 - [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
+- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
 - [7 Brit-Lit Chick Reads I Highly Recommend ...](https://allwomenstalk.com/brit-lit-chick-reads-i-highly-recommend/)
 - [7 Insanely Inspiring Books for Girls Who Need to K...](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 

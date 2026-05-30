@@ -3,7 +3,7 @@ title: "9 Career Books Every Young Woman Should Read ..."
 description: "20 Something, 20 Everything by Christine Hassler; Women, Work & the Art of Savoir Faire by Mireille Guiliano; Bossypants by Tina Fey; Nice Girls Don’t Get the Corner Office by Lois P. Frankel; I Shouldn't Be Telling You This by Kate White; More ..."
 url: "https://books.allwomenstalk.com/career-books-every-young-woman-should-read/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 9 Career Books Every Young Woman Should Read ...
@@ -68,16 +68,16 @@ I don't believe in self-help books but I wouldn't call these self-help books as 
 
 ## Related Posts
 
-- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
 - [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
-- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
 - [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 in-the-Know Books Every Woman Should Read ...](https://allwomenstalk.com/7-in-the-know-books-every-woman-should-read/)
 

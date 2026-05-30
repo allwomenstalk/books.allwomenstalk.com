@@ -3,7 +3,7 @@ title: "7 YA Books That Flew off the Shelves in 2014 ..."
 description: "The Fault in Our Stars by John Green; If I Stay by Gayle Forman; We Were Liars by E. Lockhart; Panic by Lauren Oliver; The Truth about Alice by Jennifer Mathieu; More ..."
 url: "https://books.allwomenstalk.com/ya-books-that-flew-off-the-shelves-in/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 YA Books That Flew off the Shelves in 2014 ...
@@ -56,16 +56,16 @@ There's no reason to wait for new books in 2015 when there are so many great one
 
 ## Related Posts
 
-- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
-- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
-- [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
 - [Love the Divergent Series then Youll Love These Bo...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
-- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
+- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
+- [You Wont Want to Sleep Once You Start Reading Thes...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
+- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
 - [Want to Be a Writer Heres How to Publish Your Own ...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
 - [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
-- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
-- [You Wont Want to Sleep Once You Start Reading Thes...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
 - [7 Brilliant Literary Walks to Follow in the Footst...](https://travel.allwomenstalk.com/brilliant-literary-walks-to-follow-in-the-footsteps-of-greatness/)
+- [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
+- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
+- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Best Childrens Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

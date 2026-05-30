@@ -3,7 +3,7 @@ title: "7 Awesome Mystery Book Series with Recurring Characters ..."
 description: "Patricia Cornwell and Kay Scarpetta; James Patterson and Alex Cross; Jonathan Kellerman and Alex Delaware; John Sanford and Lucas Davenport; Sue Grafton and Kinsey Millhone; More ..."
 url: "https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Awesome Mystery Book Series with Recurring Characters ...
@@ -49,16 +49,16 @@ I hope you will give these books a try and enjoy them as much as I have and do. 
 
 ## Related Posts
 
-- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
 - [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

@@ -3,7 +3,7 @@ title: "7 of My Favorite ASoIaF Characters ..."
 description: "Tyrion Lannister; Arya Stark; Sandor Clegane; Samwell Tarly; Cersei Lannister; More ..."
 url: "https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 of My Favorite ASoIaF Characters ...
@@ -42,16 +42,16 @@ Your turn, my fellow Westerosi! Which ASoIaF character do you love the most and 
 
 ## Related Posts
 
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
-- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
-- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
 - [why was the great cancelled](https://lifestyle.allwomenstalk.com/great-tv-shows-that-were-cancelled-in-their-prime/)
-- [games from tv shows](https://lifestyle.allwomenstalk.com/board-games-on-tv-shows-that-should-be-real/)
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
+- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
 - [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [games from tv shows](https://lifestyle.allwomenstalk.com/board-games-on-tv-shows-that-should-be-real/)
+- [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
 - [7 Top Action Heros ...](https://movies.allwomenstalk.com/7-top-action-heros/)
 - [8 of My Favourite Movie Characters ...](https://movies.allwomenstalk.com/8-of-my-favourite-movie-characters/)
 

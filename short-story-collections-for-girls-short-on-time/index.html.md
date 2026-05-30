@@ -3,7 +3,7 @@ title: "Short Story Collections for Girls Short on Time ..."
 description: "Crazy Salad: Some Things about Women by Nora Ephron; Get in Trouble by Kelly Link; Runaway by Alice Munro; What is Not Yours is Not Yours by Helen Oyeyemi; One More Thing: Stories and Other Stories by B.J. Novak; More ..."
 url: "https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # Short Story Collections for Girls Short on Time  ...
@@ -162,15 +162,15 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
 - [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
+- [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
 - [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
 - [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
-- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
-- [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
-- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
 - [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Fantastic Books Written by Your Favorite Funny Wom...](https://books.allwomenstalk.com/books-by-funny-women-you-must-read-soon/)

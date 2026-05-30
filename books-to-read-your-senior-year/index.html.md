@@ -3,7 +3,7 @@ title: "7 Books to Read Your Senior Year ..."
 description: "The Diary of a Young Girl- Anne Frank; I Am Malala- Malala Yousafzai; Divergent- Veronica Roth; The Naked Roommate- Harlan Cohen; A Connecticut Yankee in King Arthur’s Court- Mark Twain; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-your-senior-year/"
 category: "books"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Books to Read Your Senior Year ...
@@ -64,14 +64,14 @@ Throughout your schooling, you've likely been exposed to a number of great books
 ## Related Posts
 
 - [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
