@@ -3,7 +3,7 @@ title: "7 Influential Books That Have Been Banned ..."
 description: "The Catcher in the Rye by J.D. Salinger; Fahrenheit 451 by Ray Bradbury; The Great Gatsby by F. Scott Fitzgerald; A Streetcar Named Desire by Tennessee Williams; To Kill a Mockingbird by Harper Lee; More ..."
 url: "https://books.allwomenstalk.com/influential-books-that-have-been-banned/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Influential Books That Have Been Banned ...
@@ -56,16 +56,16 @@ Novels and plays can contain very provoking content that not all demographics mi
 
 ## Related Posts
 
+- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
 - [find new books](https://books.allwomenstalk.com/must-use-sites-for-finding-new-books/)
-- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
+- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
+- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
 - [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
+- [life is so good book](https://teen.allwomenstalk.com/best-books-about-teen-life/)
+- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
 - [paris le smoky shadow conquest](https://parenting.allwomenstalk.com/great-chapter-books-to-read-with-your-children-over-the-summer/)
 - [how to get free kindle](https://books.allwomenstalk.com/easy-ways-to-find-free-kindle-books-on-amazon/)
 - [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
-- [novels set in 1920s](https://books.allwomenstalk.com/books-set-in-the-jazz-age/)
-- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
-- [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
-- [historical books everyone should read](https://books.allwomenstalk.com/reasons-to-read-historical-fiction/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

@@ -3,7 +3,7 @@ title: "8 Heartbreaking Novels to Bring Tears to Your Eyes for Girls Who Cant Re
 description: "All the Bright Places by Jennifer Niven; Eleanor & Park by Rainbow Rowell; Looking for Alaska by John Green; Before I Fall by Lauren Oliver; Sing Me to Sleep by Angela Morrison; More ..."
 url: "https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Heartbreaking Novels to Bring Tears to Your Eyes for Girls Who Cant Resist a Good Cry ...
@@ -102,16 +102,16 @@ A love story for this generation, Me Before You brings to life two people who co
 
 ## Related Posts
 
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
-- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
-- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
-- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
-- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
-- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
-- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
 - [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
+- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
+- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
+- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
 - [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
+- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
+- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 Teen Books about Relationships ...](https://allwomenstalk.com/7-teen-books-about-relationships/)
 

@@ -3,7 +3,7 @@ title: "17 Books to Cozy up on the Couch with This Fall ..."
 description: "Did You Ever Have a Family by Bill Clegg; Big Magic by Elizabeth Gilbert; The Heart Goes Last by Margaret Atwood; Deep South by Paul Theroux; The Secret Chord by Geraldine Brooks; More ..."
 url: "https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 17 Books to Cozy up on the Couch with This Fall ...
@@ -118,16 +118,16 @@ Source: [POPSUGAR Love & Sex](https://www.popsugar.com/love/Best-2015-Fall-Books
 
 ## Related Posts
 
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Gorgeous Fall Coats ...](https://allwomenstalk.com/7-gorgeous-fall-coats/)
 

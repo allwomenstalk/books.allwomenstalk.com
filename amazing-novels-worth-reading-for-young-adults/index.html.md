@@ -3,7 +3,7 @@ title: "10 Amazing Young Adult Novels Definitely Worth the Read ..."
 description: "Violet on the Runway - Melissa Walker; The Worst Thing She Ever Did - Alice Kuipers; Slated - Teri Terry; Forgotten - Cat Patrick; Tough Love - Anne Cassidy; More ..."
 url: "https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Amazing Young Adult Novels Definitely Worth the Read  ...
@@ -126,16 +126,16 @@ What YA readers do you recommend?
 
 ## Related Posts
 
-- [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
 - [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
-- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
-- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
-- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
 - [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
+- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
+- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
+- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
+- [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
+- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
 - [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
 - [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
-- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [8 Celebrity Books Worth Reading ...](https://allwomenstalk.com/8-celebrity-books-worth-reading/)
 

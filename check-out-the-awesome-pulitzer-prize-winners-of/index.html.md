@@ -3,7 +3,7 @@ title: "Check out the Awesome Pulitzer Prize Winners of 2017 ..."
 description: "Fiction: Colson Whitebread for the Underground Railroad; Drama: Lynn Nottage for Sweat; History: Heather Ann Thompson for Blood in the Water: the Attica Prison Uprising of 1971; Biography: Hisham Matar for the Return: Fathers, Sons and the Land in between; Poetry: Tyehimba Jess for Olio; More ..."
 url: "https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Check out the Awesome Pulitzer Prize Winners of 2017 ...
@@ -65,15 +65,15 @@ Fascinating list isn’t it? Have you read any of these?
 ## Related Posts
 
 - [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
-- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
-- [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
-- [MTV Movie Awards - at Least the Opening Was Funny](https://allwomenstalk.com/mtv-movie-awards-at-least-the-opening-was-funny/)
 - [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
-- [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
-- [year of the Dog - Hollywood Premiere](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
-- [Geri Halliwells Gold Clutch Style at the Greatest ...](https://allwomenstalk.com/geri-halliwells-gold-clutch-style-at-the-greatest-britons-awards-red-carpet/)
 - [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
+- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [MTV Movie Awards - at Least the Opening Was Funny](https://allwomenstalk.com/mtv-movie-awards-at-least-the-opening-was-funny/)
+- [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
+- [Geri Halliwells Gold Clutch Style at the Greatest ...](https://allwomenstalk.com/geri-halliwells-gold-clutch-style-at-the-greatest-britons-awards-red-carpet/)
+- [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
+- [year of the Dog - Hollywood Premiere](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

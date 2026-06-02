@@ -3,7 +3,7 @@ title: "Incredible Books by Black Authors That Will Lift Your Spirits ..."
 description: "Year of Yes by Shonda Rhimes; Bad Feminist by Roxane Gay; The Light of the World by Elizabeth Alexander; Jam on the Vine by LaShonda Katrice Barnett; Ordinary Light Tracy K. Smith; More ..."
 url: "https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Incredible Books by Black Authors That Will Lift Your Spirits ...
@@ -84,16 +84,16 @@ Black writers have always produced amazing works, but in the past few years some
 
 ## Related Posts
 
-- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
 - [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
+- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
+- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
 - [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
 - [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
-- [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
-- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
-- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
-- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
-- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
 - [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
+- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
+- [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
+- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 - [21 Absolutely Amazing Books to Read in Your 20s .....](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 

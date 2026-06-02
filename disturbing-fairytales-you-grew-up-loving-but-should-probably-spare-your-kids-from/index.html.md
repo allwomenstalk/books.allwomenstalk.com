@@ -3,7 +3,7 @@ title: "7 Disturbing Fairytales You Grew up Loving but Should Probably Spare You
 description: "Sleeping Beauty; The Little Mermaid; Little Red Riding Hood; Cinderella; The Old Woman Who Was Skinned Alive; More ..."
 url: "https://books.allwomenstalk.com/disturbing-fairytales-you-grew-up-loving-but-should-probably-spare-your-kids-from/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Disturbing Fairytales You Grew up Loving but Should Probably Spare Your Kids from ...
@@ -42,16 +42,16 @@ As you can see, not every fairytale has a happy ending. Not many do, in fact. Pe
 
 ## Related Posts
 
-- [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
-- [family story writing](https://lifestyle.allwomenstalk.com/touching-family-stories-that-will-make-you-cry/)
-- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
+- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [smile cartoons](https://lifestyle.allwomenstalk.com/these-imaginative-cartoons-will-make-you-smile/)
+- [the future of civilization](https://lifestyle.allwomenstalk.com/scenarios-about-the-future-of-civilization/)
+- [weird things to send to your friend](https://funny.allwomenstalk.com/weird-wacky-things-all-best-friends-do/)
+- [most inspiring athletes](https://celebs.allwomenstalk.com/inspiring-athletes-through-the-ages/)
+- [family story writing](https://lifestyle.allwomenstalk.com/touching-family-stories-that-will-make-you-cry/)
 - [sunset reflection on water](https://lifestyle.allwomenstalk.com/time-to-stand-and-stare-mesmerizing-reflections-in-water/)
 - [toronto bungee jumping](https://travel.allwomenstalk.com/get-ready-to-scream-the-most-spine-tingling-bungee-jumps-in-the-world/)
-- [most inspiring athletes](https://celebs.allwomenstalk.com/inspiring-athletes-through-the-ages/)
-- [weird things to send to your friend](https://funny.allwomenstalk.com/weird-wacky-things-all-best-friends-do/)
+- [retro shower tile](https://diy.allwomenstalk.com/this-is-what-happens-when-you-go-retro-in-the-bathroom/)
 - [kiss marry smash](https://funny.allwomenstalk.com/the-hardest-kiss-marry-kill-game-youll-ever-play/)
-- [short faced bear vs t rex](https://lifestyle.allwomenstalk.com/wait-till-you-see-these-giant-animals-that-succeeded-the-dinosaurs/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [7 Childrens Books Every Adult Should Read](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 

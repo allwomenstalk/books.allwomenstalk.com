@@ -3,7 +3,7 @@ title: "10 Books to Inspire You ..."
 description: "The Alchemist (Paulo Coelho); I Am Malala (Malala Yousafzai); Attitude is Everything (Vicky Hitzges); The Perks of Being a Wallflower (Stephen Chbosky); The Book Thief (Markus Zusak); More ..."
 url: "https://books.allwomenstalk.com/books-to-inspire-you/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Books to Inspire You ...

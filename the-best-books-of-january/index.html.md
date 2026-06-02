@@ -3,7 +3,7 @@ title: "The 7 Best Books of January 2016 ..."
 description: "Mr. Splitfoot by Samantha Hunt; The Core of the Sun by Johanna Sinisalo, Translated by Lola Rogers; The Kindness of Enemies by Leila Aboulela; The Children's Home by Charles Lambert; The past by Tessa Hadley; More ..."
 url: "https://books.allwomenstalk.com/the-best-books-of-january/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The 7 Best Books of January 2016 ...
@@ -54,16 +54,16 @@ Which one of these novels are you going to read first?
 
 ## Related Posts
 
-- [The Best Books of Poetry to Pick up ...](https://books.allwomenstalk.com/the-best-books-of-poetry-to-pick-up/)
 - [great long books](https://books.allwomenstalk.com/long-novels-thatll-keep-you-immersed-in-the-story/)
-- [7 Unbelievable YA Books That Came out This Februar...](https://books.allwomenstalk.com/unbelievable-ya-books-that-came-out-this-february/)
-- [7 Books You Should Read before the Oscars ...](https://books.allwomenstalk.com/books-you-should-read-before-the-oscars/)
-- [paris riche le stylo violet amour](https://lifestyle.allwomenstalk.com/beautiful-pieces-of-3d-artwork-made-from-books/)
-- [10 Books You Must Read  if Youve Lost a Loved One ...](https://books.allwomenstalk.com/books-to-read-if-youve-lost-a-loved-one/)
-- [books about new years resolutions](https://books.allwomenstalk.com/books-that-will-inspire-you-as-you-start-your-new-year-resolutions/)
 - [7 Books That Have Been Turned into Terrific TV Sho...](https://books.allwomenstalk.com/books-that-have-been-turned-into-terrific-tv-shows/)
+- [7 Unbelievable YA Books That Came out This Februar...](https://books.allwomenstalk.com/unbelievable-ya-books-that-came-out-this-february/)
+- [The Best Books of Poetry to Pick up ...](https://books.allwomenstalk.com/the-best-books-of-poetry-to-pick-up/)
 - [paris color riche le stylo shadow garnet](https://books.allwomenstalk.com/this-infographic-will-tell-you-what-to-read-next/)
+- [paris riche le stylo violet amour](https://lifestyle.allwomenstalk.com/beautiful-pieces-of-3d-artwork-made-from-books/)
+- [books about new years resolutions](https://books.allwomenstalk.com/books-that-will-inspire-you-as-you-start-your-new-year-resolutions/)
 - [Look out for These Book to Movie Adaptations in 20...](https://bilbr.com/look-out-for-these-book-to-movie-adaptations-in/)
+- [10 Books You Must Read  if Youve Lost a Loved One ...](https://books.allwomenstalk.com/books-to-read-if-youve-lost-a-loved-one/)
+- [7 Books You Should Read before the Oscars ...](https://books.allwomenstalk.com/books-you-should-read-before-the-oscars/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

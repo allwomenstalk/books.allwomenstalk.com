@@ -3,7 +3,7 @@ title: "What Could Have Been: Amazing Books on Alternate History ..."
 description: "11/22/63 (Stephen King); The Alteration (Kingsley Amis); SS-GB (Len Deighton); The New Dinosaurs: an Alternative Evolution (Dougal Dixon); Conquistador (S.M. Stirling); More ..."
 url: "https://books.allwomenstalk.com/amazing-books-on-alternate-history/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # What Could Have Been: Amazing Books on Alternate History ...
@@ -70,16 +70,16 @@ It's impossible to say whether any of these scenarios would have happened as des
 
 ## Related Posts
 
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
 - [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
 - [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [8 Books That Changed the World ...](https://lifestyle.allwomenstalk.com/books-that-changed-the-world/)
 

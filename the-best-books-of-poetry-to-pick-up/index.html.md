@@ -3,7 +3,7 @@ title: "The Best Books of Poetry to Pick up ..."
 description: "Leaves of Grass by Walt Whitman; Sonnets by William Shakespeare; Paradise Lost by John Milton; Lyrical Ballads by William Wordsworth and Samuel Taylor Coleridge; Don Juan by Lord Byron; More ..."
 url: "https://books.allwomenstalk.com/the-best-books-of-poetry-to-pick-up/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # The Best Books of Poetry to Pick up ...
@@ -70,15 +70,15 @@ Poetry is just as beautiful as prose, which is why you need to read a book of it
 
 ## Related Posts
 
-- [riche le stylo smoky shadow primped previous](https://books.allwomenstalk.com/see-how-many-of-these-reading-challenges-you-can-complete/)
-- [Look out for These Book to Movie Adaptations in 20...](https://bilbr.com/look-out-for-these-book-to-movie-adaptations-in/)
-- [10 Quick and Quirky  Reads for Women Who Love a Go...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
+- [SciFi and Fantasy Books Set in Unusual Time Period...](https://books.allwomenstalk.com/scifi-and-fantasy-books-set-in-unusual-time-periods/)
 - [Books to Read for Women Curious about Womens Right...](https://books.allwomenstalk.com/read-these-books-to-learn-more-about-womens-rights/)
 - [7 Unbelievable YA Books That Came out This Februar...](https://books.allwomenstalk.com/unbelievable-ya-books-that-came-out-this-february/)
-- [SciFi and Fantasy Books Set in Unusual Time Period...](https://books.allwomenstalk.com/scifi-and-fantasy-books-set-in-unusual-time-periods/)
-- [The Books on the Longlist for the Baileys Prize fo...](https://books.allwomenstalk.com/the-books-on-the-longlist-for-the-baileys-prize-for-womens-fiction/)
-- [The Best New Books to Read in April of 2016 ...](https://books.allwomenstalk.com/the-best-new-books-to-read-in-april-of/)
+- [Look out for These Book to Movie Adaptations in 20...](https://bilbr.com/look-out-for-these-book-to-movie-adaptations-in/)
 - [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
+- [The Best New Books to Read in April of 2016 ...](https://books.allwomenstalk.com/the-best-new-books-to-read-in-april-of/)
+- [riche le stylo smoky shadow primped previous](https://books.allwomenstalk.com/see-how-many-of-these-reading-challenges-you-can-complete/)
+- [The Books on the Longlist for the Baileys Prize fo...](https://books.allwomenstalk.com/the-books-on-the-longlist-for-the-baileys-prize-for-womens-fiction/)
+- [10 Quick and Quirky  Reads for Women Who Love a Go...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
 - [books set in the south](https://books.allwomenstalk.com/books-that-will-immerse-you-in-the-south/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 - [10 Top Books for Each Genre in 2012 ...](https://movies.allwomenstalk.com/top-books-for-each-genre-in/)

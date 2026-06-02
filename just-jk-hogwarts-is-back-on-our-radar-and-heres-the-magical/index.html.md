@@ -3,7 +3,7 @@ title: "Just JK: Hogwarts is Back on Our Radar and Heres the Magical 411 ..."
 description: "These Are Ebooks, Not Book-books; They're Part of Pottermore Presents; First up, There's “Hogwarts: an Incomplete and Unreliable Guide”; “Short Stories from Hogwarts of Power, Politics and Pesky Poltergeists” is My Favorite; “Short Stories from Hogwarts of Heroism, Hardship and Dangerous Hobbies” is All about the Heroes; More ..."
 url: "https://books.allwomenstalk.com/just-jk-hogwarts-is-back-on-our-radar-and-heres-the-magical/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # Just JK: Hogwarts is Back on Our Radar and Heres the Magical 411 ...
@@ -56,15 +56,15 @@ And on a truly serious note, if you love the HP universe 🌌 and still want to 
 
 ## Related Posts
 
-- [why did he ghost me](https://love.allwomenstalk.com/what-happens-when-mr-ghost-is-back/)
-- [jack nicholsons birthday](https://celebs.allwomenstalk.com/lets-celebrate-jack-nicholsons-80th-birthday/)
-- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
-- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
-- [lowkey fangirling](https://celebs.allwomenstalk.com/the-stages-of-being-a-fangirl-only-hard-core-fans-can-relate-to/)
 - [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
 - [riche stylo eye enchanted](https://lifestyle.allwomenstalk.com/real-life-enchanted-roses-just-like-beauty-and-the-beast/)
-- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
 - [calculus videos](https://lifestyle.allwomenstalk.com/videos-in-which-a-hot-guy-completely-covers-your-calculus-i-save-it-now/)
+- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
+- [lowkey fangirling](https://celebs.allwomenstalk.com/the-stages-of-being-a-fangirl-only-hard-core-fans-can-relate-to/)
+- [why did he ghost me](https://love.allwomenstalk.com/what-happens-when-mr-ghost-is-back/)
+- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
+- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
+- [jack nicholsons birthday](https://celebs.allwomenstalk.com/lets-celebrate-jack-nicholsons-80th-birthday/)
 - [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
 - [Harry Potter to Cast a Spell in Southern Californi...](https://travel.allwomenstalk.com/could-it-be-magic-harry-potter-to-cast-a-spell-in-southern-california/)
 - [REELZCHANNEL Viewers Head to the Polls -- for Harr...](https://movies.allwomenstalk.com/reelzchannel-viewers-head-to-the-polls-for-harry-potter-movies/)

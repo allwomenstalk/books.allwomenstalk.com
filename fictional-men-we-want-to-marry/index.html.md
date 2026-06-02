@@ -3,7 +3,7 @@ title: "8 Fictional Men We Want to Marry ..."
 description: "Mr Darcy; Mr Rochester; James Bond; Romeo Montague; Count Dracula; More ..."
 url: "https://books.allwomenstalk.com/fictional-men-we-want-to-marry/"
 category: "books"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Fictional Men We Want to Marry ...
@@ -46,14 +46,14 @@ Of course, there are a couple of obvious ones I could have included on this list
 
 ## Related Posts
 
-- [how to roll sleeves female](https://love.allwomenstalk.com/strange-things-we-find-sexy-about-guys/)
+- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
 - [what do girls love](https://love.allwomenstalk.com/common-ways-girls-use-men/)
-- [woman are amazing](https://love.allwomenstalk.com/qualities-of-an-amazing-woman-to-attract-the-man-of-your-dreams/)
-- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
+- [how to roll sleeves female](https://love.allwomenstalk.com/strange-things-we-find-sexy-about-guys/)
 - [7 Biggest Misconceptions Most People Have about Bi...](https://lifestyle.allwomenstalk.com/big-misconceptions-about-bisexual-women/)
+- [7 rules of dating a rich man](https://love.allwomenstalk.com/reasons-to-only-date-wealthy-men/)
+- [woman are amazing](https://love.allwomenstalk.com/qualities-of-an-amazing-woman-to-attract-the-man-of-your-dreams/)
 - [types of guys to date](https://love.allwomenstalk.com/types-of-men-to-avoid/)
 - [should i tell her my feelings](https://love.allwomenstalk.com/ways-men-express-their-feelings-that-you-should-know-about/)
-- [men who dont date](https://love.allwomenstalk.com/absolutely-worst-types-of-men-to-date/)
 - [what do you love most about your partner](https://love.allwomenstalk.com/great-personality-traits-that-make-a-guy-perfect-boyfriend-material/)
 - [dating websites for men](https://love.allwomenstalk.com/types-of-guys-youll-meet-on-online-dating-websites/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
