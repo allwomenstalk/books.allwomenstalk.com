@@ -1,12 +1,12 @@
 ---
-title: "7 Books to Read when Youve Been Burned by Love ..."
+title: "7 Books to Read when You've Been Burned by Love ..."
 description: "Nice Guys, Freaks & Creeps: a Dating Memoir by Jennifer Knightstep; The between Boyfriends Book: a Collection of Cautiously Hopeful Essays by Cindy Chupack; What Was I Thinking?: 58 Bad Boyfriend Stories by Barbara Davilman; Split: a Memoir of Divorce by Suzanne Finnamore; Six-Word Memoirs on Love and Heartbreak by Larry Smith; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Books to Read when Youve Been Burned by Love ...
+# 7 Books to Read when You've Been Burned by Love ...
 
 There are tons of great books to read when you've been dumped and need a distraction. While there are various self-help type books that are definitely beneficial, I always like to laugh when I'm in an emotional state. At first, I don't precisely want to deal with anything, do you know what I mean? I like memoirs and other non-fiction books because I want to read about real people who've gone through their own problems, to share in their hilarious breakup stories. So while these are fantastic books to read when you've been dumped, they might not be what you expected.
 
@@ -56,16 +56,16 @@ I'm a big believer in using books as therapy. Whether I'm mad, sad, happy, or hy
 
 ## Related Posts
 
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
-- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
-- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 - [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [7 Teen Books about Relationships ...](https://allwomenstalk.com/7-teen-books-about-relationships/)
 - [7 Ways to Keep the Fire Burning in Your Relationsh...](https://love.allwomenstalk.com/ways-to-keep-the-fire-burning-in-your-relationship/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Memoirs about Mental Illness That Youve Got to Read ..."
+title: "7 Memoirs about Mental Illness That You've Got to Read ..."
 description: "“the Day the Voices Stopped”; “Shoot the Damn Dog”; “Wasted: a Memoir of Anorexia and Bulimia”; “Madness: a Bipolar Life”; “Girl, Interrupted”; More ..."
 url: "https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Memoirs about Mental Illness That Youve Got to Read ...
+# 7 Memoirs about Mental Illness That You've Got to Read ...
 
 Reading memoirs about mental illness not only takes you out of your comfort zone but also addresses topics that a large per cent of the population struggle to understand. Personally, I believe that it’s important to make efforts to understand others, not rushing to label people with names like ‘crazy’ and ‘nuts.’ Memoirs about mental illness are an honest account of a reality different from most people’s. They get you thinking and change your view on that woman on the bus who is talking to herself so you should definitely read these!
 
@@ -64,18 +64,18 @@ Memoirs about mental illness have a way of changing your mindset on people and h
 
 ## Related Posts
 
-- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
+- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
+- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
+- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
 - [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
-- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
-- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
-- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [7 Good Reasons Not to Be Ashamed of Mental Health ...](https://health.allwomenstalk.com/good-reasons-not-to-be-ashamed-of-mental-health-problems/)
-- [7 Celebrity Self-Help Books You Probably Shouldnt ...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
+- [7 Celebrity Self-Help Books You Probably Shouldn't...](https://allwomenstalk.com/7-celebrity-self-help-books-you-probably-shouldnt-take-seriously/)
 
 ## Site Information
 

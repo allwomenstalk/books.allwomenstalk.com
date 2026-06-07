@@ -1,12 +1,12 @@
 ---
-title: "7 Brilliant Quotes from Looking for Alaska That Will Inspire You"
+title: "7 Brilliant Quotes from \"Looking for Alaska\" That Will Inspire You"
 description: "Broken; Your Room; Feelings; Pain; Now; More ..."
 url: "https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Brilliant Quotes from Looking for Alaska That Will Inspire You
+# 7 Brilliant Quotes from "Looking for Alaska" That Will Inspire You
 
 There are some brilliant quotes from [“Looking for Alaska”](https://www.johngreenbooks.com/looking-for-alaska) by [John Green](https://www.goodreads.com/author/show/1406384.John_Green) that inspire me every time I read them. The story follows Pudge as he learns all about the life of boarding school and socializes with friends like Alaska, the Colonel and Takumi. It’s a brilliantly written story divided into two parts, perfect for anyone who loves [engaging young adult books](https://books.allwomenstalk.com/must-read-young-adult-books/). These are some of my favorite quotes from “Looking for Alaska.”
 
@@ -56,16 +56,16 @@ Pudge is obsessed with last words in John Green’s “Looking for Alaska.” In
 
 ## Related Posts
 
-- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
-- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
-- [noahs poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
+- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
 - [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
-- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
+- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
 - [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [coco chanel - quotes fashion  facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
 - [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [noah's poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
+- [coco chanel - quotes, fashion & facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
 - [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

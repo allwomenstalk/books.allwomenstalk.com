@@ -1,12 +1,12 @@
 ---
-title: "7 of Literatures Most Tragic Couples ..."
+title: "7 of Literature's Most Tragic Couples ..."
 description: "Heathcliff and Catherine; Anna Karenina and Count Vronsky; Willoughby and Marianne Dashwood; Brokeback Mountain; The Hunchback of Notre Dame; More ..."
 url: "https://books.allwomenstalk.com/of-literatures-most-tragic-couples/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 of Literatures Most Tragic Couples ...
+# 7 of Literature's Most Tragic Couples ...
 
 Our most beloved literature is positively littered with tragic couples - since Shakespeare's star-crossed lovers, we've seen all kinds of overwhelming odds, passionate but doomed affairs and even inter-species relationships that survive despite everything (if you consider vampire a different species). There's something about a doomed love story - we want something to root for, even though we know it can't end well; the inevitable ending is always just bittersweet enough to make those lovers immortal in our minds, on our bookshelves and in our hearts. So, with Valentine's Day looming, here are some relationships that will make any romantic situation look not-so-bad after all.
 
@@ -42,16 +42,16 @@ Whatever you're doing this Valentine's Day, remember that you could be haunting 
 
 ## Related Posts
 
-- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
-- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
-- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
-- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
 - [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
-- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
+- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
 - [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
+- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
+- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 - [7 of the Best Love Letters Ever Written ...](https://allwomenstalk.com/7-of-the-best-love-letters-ever-written/)
 

@@ -1,12 +1,12 @@
 ---
-title: "9 Books That Were Written While in Prison ..."
+title: "9 Books That Were Written While in Prison 🚓 ..."
 description: "Don Quixote by Miguel De Cervantes; Letter from Birmingham Jail by Martin Luther King, Jr; The Travels of Marco Polo by Rustichello Da Pisa; De Profundis by Oscar Wilde; Short Stories by O. Henry; More ..."
 url: "https://books.allwomenstalk.com/books-that-were-written-while-in-prison/"
 category: "books"
-last_updated: "2026-06-06"
+last_updated: "2026-06-07"
 ---
 
-# 9 Books That Were Written While in Prison  ...
+# 9 Books That Were Written While in Prison 🚓 ...
 
 Would you believe that some of the best stories of our time were written or created while the authors were in jail? Does that change your opinion of them? Well, let's see. Now, there are plenty of truly amazing non-fiction books written by more contemporary authors, books about their time in prison written after the fact or started while they did their time. This list, however, focuses on novels that don't necessarily have anything to do with prison life. Although these are all books that were written while the authors were in jail, I imagine that the writers used their tales to take them out of the reality of their circumstances. What do you think?
 
@@ -87,15 +87,15 @@ Like the little cliché goes, two men stared out of prison bars – one saw mud 
 ## Related Posts
 
 - [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
-- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
-- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
-- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
-- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
-- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
-- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
 - [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
 - [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
+- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
+- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
+- [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
+- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
+- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
+- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 

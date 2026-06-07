@@ -1,12 +1,12 @@
 ---
-title: "7 Fascinating Autobiographies with Compelling Tales Youve Got to Read ..."
+title: "7 Fascinating Autobiographies with Compelling Tales You've Got to Read ..."
 description: "My Booky Wook by Russell Brand; Between a Rock and a Hard Place by Aron Ralston; Memoirs of a Boy Soldier by Ishmael Beah; Lucky Man by Michael J. Fox; Why Be Happy when You Can Be Normal? by Jeanette Winterson; More ..."
 url: "https://books.allwomenstalk.com/fascinating-autobiographies-with-compelling-tales-youve-got-to-read/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Fascinating Autobiographies with Compelling Tales Youve Got to Read ...
+# 7 Fascinating Autobiographies with Compelling Tales You've Got to Read ...
 
 There are fascinating autobiographies written by celebrities, war veterans, and everyday people. No matter what subject you’re interested in, there’s an autobiography about it. All you need is to look, and you’ll find plenty of books about whatever you want to know about. In order to save you some searching, here are some fascinating autobiographies on a variety of different topics.
 
@@ -56,16 +56,16 @@ The next time you head to the book store, head to the autobiography section. Hav
 
 ## Related Posts
 
-- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
-- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
-- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
 - [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
+- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
 - [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
-- [9 Things You Should Know about the Divergent Serie...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
-- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
-- [john kennedy otoole](https://books.allwomenstalk.com/authors-who-only-wrote-one-book-but-oh-what-books/)
-- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
 - [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
+- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
+- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
+- [john kennedy o'toole](https://books.allwomenstalk.com/authors-who-only-wrote-one-book-but-oh-what-books/)
+- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
+- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
+- [9 Things You Should Know about the 'Divergent' Ser...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Memoirs I Am Dying to Read ...](https://allwomenstalk.com/7-memoirs-i-am-dying-to-read/)
 

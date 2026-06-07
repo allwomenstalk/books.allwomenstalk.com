@@ -1,12 +1,12 @@
 ---
-title: "7 Novellas You Can and Should Read in One Sitting for Girls Who Dont Want Long Stories ..."
+title: "7 Novellas You Can (and Should ) Read in One Sitting for Girls Who Don't Want Long Stories ..."
 description: "The Old Man and the Sea by Ernest Hemingway; The Awakening by Kate Chopin; The Call of Cthulhu by H.P. Lovecraft; The Pearl by John Steinbeck; Breakfast at Tiffany’s by Truman Capote; More ..."
 url: "https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Novellas You Can and Should  Read in One Sitting for Girls Who Dont Want Long Stories ...
+# 7 Novellas You Can \(and Should \) Read in One Sitting for Girls Who Don't Want Long Stories ...
 
 When you're busy with work and school, it's hard to find time to read the books you want to read. That's why you should stick to reading the shortest books you can find around this time of year. That way, you'll be able to finish a story in one sitting. If you're not sure where to look in your bookstore, you should start by finding these famous titles:
 
@@ -70,16 +70,16 @@ Novellas can be just as thrilling as novels. The only difference is they take le
 
 ## Related Posts
 
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

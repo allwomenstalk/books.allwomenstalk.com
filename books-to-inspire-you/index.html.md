@@ -3,7 +3,7 @@ title: "10 Books to Inspire You ..."
 description: "The Alchemist (Paulo Coelho); I Am Malala (Malala Yousafzai); Attitude is Everything (Vicky Hitzges); The Perks of Being a Wallflower (Stephen Chbosky); The Book Thief (Markus Zusak); More ..."
 url: "https://books.allwomenstalk.com/books-to-inspire-you/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 10 Books to Inspire You ...
@@ -70,7 +70,7 @@ So find inspiration for yourself in these books. Some are straightforward, other
 - [9 Inspiring Quotes to Lift Your Spirits ...](https://lifestyle.allwomenstalk.com/inspiring-quotes-to-lift-your-spirits/)
 - [7 Inspiring Books You Need to Read to Get to Know ...](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [9 Amazing Books That Boost Self-Confidence ...](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [7 Inspirational Books to Pick up if Youre in a Job...](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
+- [7 Inspirational Books to Pick up if You're in a Jo...](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
 - [7 Inspirational People Who Will Change Your Outloo...](https://inspiration.allwomenstalk.com/inspirational-people-who-will-change-your-outlook/)
 - [7 Motivational Quotes from Books That Celebrate Be...](https://books.allwomenstalk.com/motivational-quotes-from-books-that-celebrate-being-happy/)
 - [7 Books Guaranteed to Make You a Better Person ...](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)

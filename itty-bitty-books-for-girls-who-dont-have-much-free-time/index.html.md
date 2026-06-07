@@ -1,12 +1,12 @@
 ---
-title: "Itty Bitty Books for Girls Who Dont Have Much Free Time ..."
+title: "Itty Bitty Books for Girls Who Don't Have Much Free Time ..."
 description: "Animal Farm by George Orwell; Heart Burn by Nora Ephron; Who Will Run the Frog Hospital? by Lorrie Moore; The Body in the Library by Agatha Christie; The Sense of an Ending by Julian Barnes; More ..."
 url: "https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Itty Bitty Books for Girls Who Dont Have Much Free Time ...
+# Itty Bitty Books for Girls Who Don't Have Much Free Time ...
 
 If you love to read, but have a hard time carving out the hours to sit down with a novel, you need a book that isn’t such a big commitment. There are lots of books that give you an epic tale to get lost in and that don’t take a ton of time to read. Summer is almost here so it’s a great time to start putting together a reading list for the warm months of lounging on the back patio. Here are some books you’ll love, but that are fairly short.
 
@@ -56,16 +56,16 @@ Which of these books is on your reading list? What others would you add to the l
 
 ## Related Posts
 
-- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
-- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
 - [books on woman](https://books.allwomenstalk.com/feminist-books-every-woman-should-read/)
-- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
-- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
-- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
-- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
-- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
+- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
 - [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
+- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
+- [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
+- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
 - [positive books for young adults](https://books.allwomenstalk.com/awesome-books-about-body-positivity-for-young-adults/)
+- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
+- [white oleander audiobook](https://books.allwomenstalk.com/listen-to-these-interesting-audio-books-during-your-commute/)
+- [books about toxic mothers](https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/)
 - [7 Brit-Lit Chick Reads I Highly Recommend ...](https://allwomenstalk.com/brit-lit-chick-reads-i-highly-recommend/)
 - [7 Insanely Inspiring Books for Girls Who Need to K...](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 

@@ -1,12 +1,12 @@
 ---
-title: "7 Fatal Flaws of J. R. Wards Black Dagger Brotherhood Series ..."
+title: "7 Fatal Flaws of J. R. Ward's Black Dagger Brotherhood Series ..."
 description: "The “H”; Ridiculous Names; Bland Female Characters; Gang-Slang; Product Placements; More ..."
 url: "https://books.allwomenstalk.com/fatal-flaws-of-j-r-wards-black-dagger-brotherhood-series/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Fatal Flaws of J. R. Wards Black Dagger Brotherhood Series ...
+# 7 Fatal Flaws of J. R. Ward's Black Dagger Brotherhood Series ...
 
 The Black Dagger Brotherhood Series is, by far, the most extensive piece of paranormal romance slash urban fantasy literature I’ve read so far and, as such, has my undying love! I also find it incredibly annoying which, in turn, makes me love it even more, if you can believe it! Because, come on, if a piece of literature can make you want to roll your eyes and flip the page all at the same time, it’s got to be worth something! The author of the Black Dagger Brotherhood Series, J.R. Ward, definitely knows how to keep her readers entertained, but entertainment, as you know, doesn’t come without a cost. And in order to enjoy these books, you will need to learn to deal with these obvious flaws.
 
@@ -42,16 +42,16 @@ How many times did you feel the need to do an eyeroll while reading BDB Series a
 
 ## Related Posts
 
-- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
+- [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
 - [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
 - [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
 - [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
 - [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
-- [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
-- [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
 - [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
 - [5 Things I Liked in Breaking Dawn ...](https://twilight.allwomenstalk.com/5-things-i-liked-in-breaking-dawn/)
 - [5 Things I Love about the Twilight Series ...](https://twilight.allwomenstalk.com/5-things-i-love-about-the-twilight-series/)
 

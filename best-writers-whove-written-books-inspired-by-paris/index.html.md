@@ -1,12 +1,12 @@
 ---
-title: "7 Best Writers Whove Written Books Inspired by Paris ..."
+title: "7 Best Writers Who've Written Books Inspired by Paris ..."
 description: "Ernest Hemingway; Gertrude Stein; F. Scott Fitzgerald; James Joyce; Samuel Beckett; More ..."
 url: "https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Best Writers Whove Written Books Inspired by Paris ...
+# 7 Best Writers Who've Written Books Inspired by Paris ...
 
 The feeling was surreal when I got hold of books inspired by Paris and I was in the very same city that motivated the authors to write them. On February 2014, in the dead of winter, I entered Shakespeare and Company (named such to honor a woman named Sylvia Beach who had operated a bookshop of the same name which closed in late 1941 because of the German occupation of France) and I just felt happy to be in a city that inspired the writing of great literary pieces. Here are writers who wrote books inspired by Paris - its people, its cafes, its elegance:
 
@@ -56,16 +56,16 @@ So many novels and short stories from these authors, and we're not even halfway 
 
 ## Related Posts
 
-- [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
 - [9 Divine Movies Set in Paris ...](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 

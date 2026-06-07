@@ -1,12 +1,12 @@
 ---
-title: "8 Books That You Should Have Read in School but Didnt ..."
+title: "8 Books That You Should Have Read in School but Didn't ..."
 description: "The Great Gatsby by F. Scott Fitzgerald; Of Mice and Men by John Steinbeck; Catcher in the Rye by J.D. Salinger; Night by Elie Wiesel; Heart of Darkness by Joseph Conrad; More ..."
 url: "https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 8 Books That You Should Have Read in School but Didnt ...
+# 8 Books That You Should Have Read in School but Didn't ...
 
 Many of my friends, myself included, regret not taking the time to read these books that you should have read in school, but didn’t. They introduced us into a world of literary classics, and we took them for granted. We found SparkNotes and read summaries of them, but never actually took the time to appreciate them as novels. I have gone back and re-read a few of the books they assigned in high school and have come to appreciate them on a much higher level. While you may not be an avid reader anymore, there are still some great books that you should have read in school and that you should take the time to read now.
 
@@ -62,16 +62,16 @@ We have all heard of these books, and probably even know the plot. But without t
 
 ## Related Posts
 
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
-- [the storytellers daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
-- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
 - [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
+- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 

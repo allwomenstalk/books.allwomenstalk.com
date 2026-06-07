@@ -3,7 +3,7 @@ title: "Desiderata by Max Ehrmann ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://books.allwomenstalk.com/desiderata-by-max-ehrmann/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Desiderata by Max Ehrmann ...
@@ -67,16 +67,16 @@ People remember not what you say but how you made them feel. Be grateful, no mat
 
 ## Related Posts
 
-- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
-- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
-- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
 - [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
 - [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
+- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
+- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [Fat: a Love Story ...](https://health.allwomenstalk.com/fat-a-love-story/)
 - [The Scent of Love ...](https://allwomenstalk.com/the-scent-of-love/)
 

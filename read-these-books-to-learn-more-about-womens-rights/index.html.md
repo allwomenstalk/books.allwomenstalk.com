@@ -1,12 +1,12 @@
 ---
-title: "Books to Read for Women Curious about Womens Rights ..."
+title: "Books to Read for Women Curious about Women's Rights ..."
 description: "Jailed to Freedom: American Women Win the Vote by Doris Stevens; The Future of Feminism by Sylvia Walby; In Our Time: Memoir of a Revolution by Susan Brownmiller; Shortchanged: Why Women Have Less Wealth and What Can Be Done about It by Mariko Lin Chang; At the Dark End of the Street: Black Women, Rape, and Resistance – a New History of the Civil Rights Movement from Rosa Parks to the Rise of Black Power by Danielle L McGuire; More ..."
 url: "https://books.allwomenstalk.com/read-these-books-to-learn-more-about-womens-rights/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Books to Read for Women Curious about Womens Rights ...
+# Books to Read for Women Curious about Women's Rights ...
 
 I don’t know if it’s just me but it seems that equality and women’s rights is quite high on the media agenda in recent months. Women always know this issue is out there but the media has given more and extensive coverage to bring attention to what is only right and proper – that women are considered equal to men in all ways. This has made me realize that I need (and want) to know more about the issue and I’ve got a reading list of books about women’s rights to share with you.
 
@@ -166,16 +166,16 @@ Happy reading ladies!
 
 ## Related Posts
 
-- [10 Quick and Quirky  Reads for Women Who Love a Go...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
-- [best non fiction books to read on vacation](https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/)
-- [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
-- [uplifting books for women](https://books.allwomenstalk.com/uplifting-books-for-women-who-need-to-turbo-charge-their-mood/)
-- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
-- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
 - [lee hyeon seo memoir](https://books.allwomenstalk.com/autobiography-lovers-will-love-to-read-these-memoirs/)
-- [books that girls like](https://books.allwomenstalk.com/books-that-will-change-your-life-for-girls-who-love-to-read/)
+- [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
+- [10 Quick and Quirky 🤗 Reads for Women Who Love a ...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
+- [uplifting books for women](https://books.allwomenstalk.com/uplifting-books-for-women-who-need-to-turbo-charge-their-mood/)
 - [books like slaughterhouse five](https://books.allwomenstalk.com/books-you-wont-find-on-a-syllabus-that-every-teenager-should-read/)
+- [books that girls like](https://books.allwomenstalk.com/books-that-will-change-your-life-for-girls-who-love-to-read/)
+- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
+- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
 - [books that are being turned into movies](https://movies.allwomenstalk.com/remarkable-books-that-are-being-made-into-movies/)
+- [best non fiction books to read on vacation](https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/)
 - [7 Modern Feminism Books You Need to Read ...](https://lifestyle.allwomenstalk.com/modern-feminism-books-you-need-to-read/)
 - [7 Insanely Inspiring Books for Girls Who Need to K...](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 

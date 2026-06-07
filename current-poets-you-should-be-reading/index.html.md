@@ -1,12 +1,12 @@
 ---
-title: "5 Current Poets You Should Be Reading ASAP ..."
+title: "5 Current Poets You Should Be Reading ASAP ⏳ ..."
 description: "Neil Hilborn; Sabrina Benaim; TB LaBerge; Rupi Kaur; Olivia Gatwood; More ..."
 url: "https://books.allwomenstalk.com/current-poets-you-should-be-reading/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 5 Current Poets You Should Be Reading ASAP  ...
+# 5 Current Poets You Should Be Reading ASAP ⏳ ...
 
 Wondering which **current poets you should be reading**?
 When you think of poetry, do you think of some hard to understand, rhyming piece by an old guy who’s long gone? Recently, I was exposed to an incredible world in which this stereotype is proven false. A few weeks ago, I wrote an article about some of the most amazing Instagram poets, I’ve stumbled upon (https://apps.allwomenstalk.com/instagram-poets-to-follow), and if you read that article, some of the names on this list will be familiar to you. So, go check out these **current poets you should be reading**.
@@ -39,15 +39,15 @@ Raised in both New Mexico and Trinidad, Gatwood is an active member of the slam 
 ## Related Posts
 
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
 - [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
 - [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
 - [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

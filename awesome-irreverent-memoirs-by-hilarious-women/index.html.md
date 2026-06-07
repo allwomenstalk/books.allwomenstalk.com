@@ -1,12 +1,12 @@
 ---
-title: "7 Awesome Irreverent Memoirs by Hilarious Women ..."
+title: "7 Awesome, Irreverent Memoirs by Hilarious Women ..."
 description: "Bossypants by Tina Fey; Dark at the Roots by Sarah Thyre; Autobiography of a Fat Bride by Laurie Notaro; Is It Just Me?: or is It Nuts out There? by Whoopi Goldberg; Seriously...I'm Kidding by Ellen DeGeneres; More ..."
 url: "https://books.allwomenstalk.com/awesome-irreverent-memoirs-by-hilarious-women/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Awesome Irreverent Memoirs by Hilarious Women ...
+# 7 Awesome, Irreverent Memoirs by Hilarious Women ...
 
 Memoirs by hilarious women are my absolute favorites. I love the non-fiction genre anyway, and memoirs give me a little voyeuristic thrill. I love reading autobiographies by funny women because of that, but also for myriad other reasons. For one thing, there simply aren't enough famously funny women. Don't get me wrong, there are lots of hilarious ladies out there; some of them are comediennes, some are actresses, some are bloggers or writers or essayists. The sad fact is, however, they don't get enough recognition, comedy still being something of a male-dominated industry. For another thing, you can always relate to these women – even the rich and famous. The funny things they go through are things you've experienced; you know so many of these embarrassing, touching, awkward, painful, or painfully funny moments by heart. When you read good memoirs by hilarious women, you're seeing their lives – and often discovering that they're not so different from yours.
 
@@ -66,16 +66,16 @@ Now, in the interest of full disclosure, some of these are very irreverent. Some
 
 ## Related Posts
 
-- [greek.goddess](https://lifestyle.allwomenstalk.com/greek-goddesses-you-will-want-to-get-to-know/)
-- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
-- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
-- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
-- [quotes for womens history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
 - [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
-- [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
+- [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
+- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
+- [greek.goddess](https://lifestyle.allwomenstalk.com/greek-goddesses-you-will-want-to-get-to-know/)
 - [good gospel music](https://music.allwomenstalk.com/of-the-greatest-female-vocalists-of-all-time/)
+- [quotes for women's history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
 - [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
+- [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
+- [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 Extraordinary Women Who Changed the World ...](https://celebs.allwomenstalk.com/extraordinary-women-who-changed-the-world/)
 

@@ -1,12 +1,12 @@
 ---
-title: "9 Circles of Hell from Dantes Inferno ..."
+title: "9 Circles of Hell from Dante's Inferno ..."
 description: "Limbo; Lust; Gluttony; Greed; Wrathful and Sullen; More ..."
 url: "https://books.allwomenstalk.com/circles-of-hell-from-dantes-inferno/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Circles of Hell from Dantes Inferno ...
+# 9 Circles of Hell from Dante's Inferno ...
 
 Dante Alighieri’s Inferno relates Dante’s fictional journey through the nine circles of Hell, each of which represents a punishment for a specific sin. It is part of a series called the Divine Comedy, which also includes Purgatory and Paradise, and it is probably the most read of the three. The Inferno is a story that symbolizes morality, human nature, peace, sin, and coming closer to God. To some extent it is also a criticism of the church, which is evident through the seven popes Dante encounters in Hell. In addition to popes, Dante also included individuals from ancient Roman history, his own personal friends, and his own enemies. Before Dante meets any of these characters, he sets out on his journey on Maundy Thursday and is guided through the nine circles of Hell by the Roman poet Virgil.
 
@@ -52,16 +52,16 @@ Dante’s Inferno is a long allegory that is symbolic for the punishment of sin,
 
 ## Related Posts
 
+- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
+- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
+- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
+- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
+- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
+- [jimmy kimmel's sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
 - [what is the most hated day](https://funny.allwomenstalk.com/of-the-worst-days-in-a-month/)
 - [jimmy fallon and benedict cumberbatch](https://funny.allwomenstalk.com/funny-videos-of-benedict-cumberbatch/)
 - [7 dates with a guy](https://love.allwomenstalk.com/disastrous-dates-weve-all-had/)
-- [ps4 games list 2014](https://lifestyle.allwomenstalk.com/ps4-games-we-cant-wait-for-this-year/)
-- [i wish fictional characters were real](https://movies.allwomenstalk.com/fictional-characters-we-wish-were-real/)
-- [monica frizzy hair meme](https://movies.allwomenstalk.com/times-weve-all-been-one-of-the-f-r-i-e-n-d-s-characters/)
-- [who was a in pll books](https://books.allwomenstalk.com/pretty-little-liars-characters-and-how-they-differ-between-the-show-and-books/)
 - [loreal color riche le stylo smoky with a twist](https://lifestyle.allwomenstalk.com/unexpected-stories-behind-famous-logos/)
-- [jimmy kimmels sidekick](https://movies.allwomenstalk.com/hilarious-segments-from-jimmy-kimmel-live/)
-- [greek cyclopes](https://books.allwomenstalk.com/creatures-from-greek-mythology/)
 - [8 Amazing Mazes ...](https://travel.allwomenstalk.com/amazing-mazes/)
 - [5 Monsters of the Deep ...](https://twilight.allwomenstalk.com/5-monsters-of-the-deep/)
 

@@ -3,7 +3,7 @@ title: "7 Novels That Are Scarier than Any Horror Movie ..."
 description: "Ticktock by Dean Koontz; The Silence of the Lambs by Thomas Harris; Hell House by Richard Matheson; House of Leaves by Mark Z. Danielewski; It by Stephen King; More ..."
 url: "https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Novels That Are Scarier than Any Horror Movie ...
@@ -57,15 +57,15 @@ Books can be just as scary as any movie could ever be. If you don't believe it, 
 ## Related Posts
 
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
-- [books for teenage guys who dont like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
-- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
 - [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [qa a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
+- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
+- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [7 Scariest Stephen King Novels ...](https://allwomenstalk.com/7-scariest-stephen-king-novels/)
 - [7 Scariest Stephen King Movies ...](https://allwomenstalk.com/7-scariest-stephen-king-movies/)
 

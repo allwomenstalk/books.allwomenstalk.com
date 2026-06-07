@@ -1,12 +1,12 @@
 ---
-title: "7 Heartfelt Quotes from John Greens Books ..."
+title: "7 Heartfelt Quotes from John Green's Books ..."
 description: "Stars; Connections; Forgiveness; Over There; Promises; More ..."
 url: "https://books.allwomenstalk.com/heartfelt-quotes-from-john-greens-books/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Heartfelt Quotes from John Greens Books ...
+# 7 Heartfelt Quotes from John Green's Books ...
 
 The heartfelt quotes from John Green's books are one of the greatest aspects of reading the work of this phenomenal author. In addition to his ability to create material that resonates with his diverse audience, John Green has a way with words; from the interwoven plots to the three-dimensional characters, there's something about his books that makes them incredibly addicting. If you're not convinced, these brilliant quotes from John Green's books may change your mind.
 
@@ -56,16 +56,16 @@ I can never resist collecting powerful quotes that help bring me closer to my ow
 
 ## Related Posts
 
-- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
-- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
 - [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
-- [its our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [greys anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
-- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
 - [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
+- [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
+- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
+- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

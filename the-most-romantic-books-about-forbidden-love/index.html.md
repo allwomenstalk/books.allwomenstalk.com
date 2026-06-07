@@ -1,12 +1,12 @@
 ---
-title: "A Bookworms Guide to Forbidden Love for Romantic Readers ..."
+title: "A Bookworm's Guide to Forbidden Love for Romantic Readers ..."
 description: "Slammed by Colleen Hoover; The Thorn Birds by Colleen McCullough; The Truth about Forever by Sarah Dessen; Something like Fate by Susane Colasanti; Anna Karenina by Leo Tolstoy; More ..."
 url: "https://books.allwomenstalk.com/the-most-romantic-books-about-forbidden-love/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# A Bookworms Guide to Forbidden Love for Romantic Readers ...
+# A Bookworm's Guide to Forbidden Love for Romantic Readers ...
 
 Romeo and Juliet isn't the only story out there about forbidden love. There are plenty of modern romances that are equally as intense. If you're interested in reading about students falling for teachers and men falling for married women, here are a few of the most [romantic books](https://books.allwomenstalk.com/the-best-books-on-the-psychology-of-love/) about forbidden love that should keep you entertained for hours on end:
 
@@ -70,16 +70,16 @@ There's nothing hotter than two people defying the odds by making their unconven
 
 ## Related Posts
 
-- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
+- [billionaire ex wife pdf](https://books.allwomenstalk.com/the-best-books-on-the-psychology-of-love/)
+- [classic books every woman should read](https://books.allwomenstalk.com/classic-books-every-girl-must-read-at-least-once/)
 - [thrillers font](https://books.allwomenstalk.com/psychological-thrillers-that-will-chill-and-thrill-you/)
+- [greatest romantic novels](https://books.allwomenstalk.com/are-these-the-best-romantic-novels/)
+- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
+- [a bildungsroman novel](https://books.allwomenstalk.com/bildungsroman-novels-all-ages-can-enjoy/)
 - [best classic french authors](https://books.allwomenstalk.com/classic-french-novels-that-are-worth-the-read/)
+- [victorian era romance novels](https://books.allwomenstalk.com/most-romantic-lines-from-victorian-literature/)
 - [best books for twenty somethings](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
 - [stephen king multiverse map](https://books.allwomenstalk.com/book-infographics-to-titillate-bibliophiles-of-all-tastes/)
-- [billionaire ex wife pdf](https://books.allwomenstalk.com/the-best-books-on-the-psychology-of-love/)
-- [greatest romantic novels](https://books.allwomenstalk.com/are-these-the-best-romantic-novels/)
-- [a bildungsroman novel](https://books.allwomenstalk.com/bildungsroman-novels-all-ages-can-enjoy/)
-- [victorian era romance novels](https://books.allwomenstalk.com/most-romantic-lines-from-victorian-literature/)
-- [classic books every woman should read](https://books.allwomenstalk.com/classic-books-every-girl-must-read-at-least-once/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)
 - [When Obsessive Love Turns to Freaky Fatal Attracti...](https://allwomenstalk.com/when-obsessive-love-turns-to-freaky-fatal-attraction/)
 

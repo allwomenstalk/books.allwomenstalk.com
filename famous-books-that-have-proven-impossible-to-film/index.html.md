@@ -1,12 +1,12 @@
 ---
-title: "Some Famous Books Cant Be Made into Movies ..."
+title: "Some Famous Books Can't Be Made into Movies ..."
 description: "One Hundred Years of Solitude; The Catcher in the Rye; Infinite Jest; A Confederacy of Dunces; What Make Sammy Run?; More ..."
 url: "https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Some Famous Books Cant Be Made into Movies ...
+# Some Famous Books Can't Be Made into Movies ...
 
 Even though many of the films that are made today are an adaptation of a famous book, there are, in fact, quite a lot of books that proved impossible to film. There are some film scholars like Andrew S. Allen who think that adapting books into movies is a sign of Hollywood's waning creativity; he says that there were about half as many original films in the 2000s as they were in the 1980s. Studies also show that about a third of all Hollywood productions are book adaptations and that half of each year’s 10 highest-grossing movies have been adapted works. But just because a book is famous, it’s well-written and it sells really well, it doesn’t mean that it’s easy to film. Here are 7 famous books that proved impossible to film:
 
@@ -45,16 +45,16 @@ Sources:
 
 ## Related Posts
 
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [the scariest sentence ive ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

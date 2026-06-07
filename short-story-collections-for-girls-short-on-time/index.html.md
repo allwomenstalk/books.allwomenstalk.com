@@ -1,12 +1,12 @@
 ---
-title: "Short Story Collections for Girls Short on Time ..."
+title: "Short Story Collections for Girls Short on Time ⏰ ..."
 description: "Crazy Salad: Some Things about Women by Nora Ephron; Get in Trouble by Kelly Link; Runaway by Alice Munro; What is Not Yours is Not Yours by Helen Oyeyemi; One More Thing: Stories and Other Stories by B.J. Novak; More ..."
 url: "https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Short Story Collections for Girls Short on Time  ...
+# Short Story Collections for Girls Short on Time ⏰ ...
 
 I’m one of those readers who suffer from that “must finish before I put it down” syndrome. If I get into a story, I find it really hard to stop reading it. This means many nights where I’m reading until the birds start singing. And it means bleary eyes and a need to work on ways to stay awake during the day. The answer? Leave the novels to the weekend and indulge in short stories on weekdays. I’ve found some excellent short story collections this year and would love to share them with you.
 
@@ -162,16 +162,16 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
-- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
 - [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
 - [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
-- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
-- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
+- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
 - [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
+- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
 - [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
+- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
 - [Easy Ways for Busy Girls to Find Time for the Thin...](https://inspiration.allwomenstalk.com/ways-to-make-time-for-your-passion/)
 - [Fantastic Books Written by Your Favorite Funny Wom...](https://books.allwomenstalk.com/books-by-funny-women-you-must-read-soon/)
 

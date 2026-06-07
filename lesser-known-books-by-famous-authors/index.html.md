@@ -1,12 +1,12 @@
 ---
-title: "Lesser Known Books by Famous Authors for Girls Who Love to Read ..."
+title: "Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ..."
 description: "The Last Man (Mary Shelley); The Inheritors (William Golding); The Nightingale and the Rose (Oscar Wilde); The Cat and the Devil (James Joyce); Work (Louisa May Alcott); More ..."
 url: "https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Lesser Known Books by Famous Authors for Girls Who Love to Read  ...
+# Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ...
 
 Many authors have written a book so powerful that it's become the only one associated with their name. Or perhaps they're best known for a few novels. This leaves many other works neglected and virtually unknown. So it's time to rescue them from their undeserved obscurity! Here are the lesser-known books by famous authors that you must read …
 
@@ -56,18 +56,18 @@ So do check out the lesser-known works by your favorite authors; you'll discover
 
 ## Related Posts
 
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
+- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
-- [If Books Were Social Media These Would Be the Titl...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
-- [7 Underrated Authors Youll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
+- [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 
 ## Site Information
 

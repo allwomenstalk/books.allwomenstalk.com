@@ -1,12 +1,12 @@
 ---
-title: "11 Wonderful Books Youll Want to Curl up in Bed with ..."
+title: "11 Wonderful Books You'll Want to Curl up in Bed with ..."
 description: "The Secret Garden Frances Hodgson Burnett; Little Women by Louisa May Alcott; Rebecca by Daphne Du Maurier; I Feel Bad about My Neck: and Other Thoughts on Being a Woman by Nora Ephron; The Girl on the Train by Paula Hawkins; More ..."
 url: "https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 11 Wonderful Books Youll Want to Curl up in Bed with ...
+# 11 Wonderful Books You'll Want to Curl up in Bed with ...
 
 Have you ever wanted to curl up in a reading nook to forget about the world? [Huffington Post](https://www.huffpost.com/entry/books-to-curl-up-with-in-a-reading-nook_n_5644bc13e4b045bf3dedff77) knows what that's like, which is why they've compiled this list. Check out some of the books that they've suggested:
 
@@ -76,16 +76,16 @@ Have you read any of these books that [Huffington Post](https://www.huffpost.com
 
 ## Related Posts
 
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [10 Books to Read on Cold Winter Days ...](https://allwomenstalk.com/10-books-to-read-on-cold-winter-days/)
 

@@ -3,7 +3,7 @@ title: "7 Great British Crime Writers ..."
 description: "Martina Cole; Ian Rankin; Agatha Christie; P. D. James; Ruth Rendell; More ..."
 url: "https://books.allwomenstalk.com/great-british-crime-writers/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Great British Crime Writers ...
@@ -56,16 +56,16 @@ There’s something for all lovers of crime fiction among the great British expo
 
 ## Related Posts
 
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
+- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
+- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
 - [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
 - [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
 - [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
-- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
 - [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
 - [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
-- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
-- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [7 Best British TV Shows to Watch ...](https://movies.allwomenstalk.com/best-british-tv-shows-to-watch/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 

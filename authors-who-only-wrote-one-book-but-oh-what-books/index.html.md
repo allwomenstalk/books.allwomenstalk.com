@@ -1,12 +1,12 @@
 ---
-title: "7 Authors Who Only Wrote One Book but Oh What Books ..."
+title: "7 Authors Who Only Wrote One Book, but Oh What Books ..."
 description: "Harper Lee; Anna Sewell; Oscar Wilde; BoRIS PASTERNAK; Emily Bronte; More ..."
 url: "https://books.allwomenstalk.com/authors-who-only-wrote-one-book-but-oh-what-books/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Authors Who Only Wrote One Book but Oh What Books ...
+# 7 Authors Who Only Wrote One Book, but Oh What Books ...
 
 I wish I could emulate some amazing authors who only wrote one book. I have been writing my novel for about 4 years now and I really wonder if I will ever finish it. They do say there is a book in everyone and some writers have proved this. There are authors who only wrote one book, but that book sure left a major impression. Do you ask why they stopped at one? Is it because they believe that saying that there is a book in everyone and no more, or is it because their one and only book was such a masterpiece they couldn’t live up to it with another. My list of authors who wrote only one book contains some titles that are considered some of the best books ever written.
 
@@ -42,16 +42,16 @@ Do you know of other authors who only wrote one book? Was it worth it do you thi
 
 ## Related Posts
 
+- [9 Things You Should Know about the 'Divergent' Ser...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
 - [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
 - [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
 - [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
-- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
-- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
-- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
-- [9 Things You Should Know about the Divergent Serie...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
-- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
-- [7 Wonderful Kids Books That Adults Should Read ...](https://books.allwomenstalk.com/wonderful-kids-books-that-adults-should-read/)
 - [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
+- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
+- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
+- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
+- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
+- [7 Wonderful Kids Books That Adults Should Read ...](https://books.allwomenstalk.com/wonderful-kids-books-that-adults-should-read/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 

@@ -1,12 +1,12 @@
 ---
-title: "9 Memorable Characters from John Irvings Novels ..."
+title: "9 Memorable Characters from John Irving's Novels ..."
 description: "Owen Meany; T. S. Garp; Dr. Wilbur Larch; Roberta Muldoon; John Berry; More ..."
 url: "https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Memorable Characters from John Irvings Novels ...
+# 9 Memorable Characters from John Irving's Novels ...
 
 Since John Irving's novels are among my favorites, I've got deep, serious literary-relationships with quite a few of his characters. He's not only one of my favorite authors, but also one of my biggest inspirations, partly because he creates such rich, multi-layered characters. They have flaws and quirks and sometimes they're annoying or downright unlikable – but you end up loving them anyway. His ability to weave such rich, detailed tapestries in terms of his characters and their settings makes John Irving's novels incredibly multifaceted. He knows how to tell a story and how to write it beautifully, and he knows how to create characters you somehow want to have in your life. You'll notice characters from the same books popping up in my list of favorites, but that's because a. I love the books, and 2. I'm still working my way through his extensive bibliography.
 
@@ -68,16 +68,16 @@ Trust, these are not the only characters I love from John Irving's novels, but t
 
 ## Related Posts
 
-- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
-- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
-- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
-- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
+- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
+- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
 - [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
 - [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
-- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
 - [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
+- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

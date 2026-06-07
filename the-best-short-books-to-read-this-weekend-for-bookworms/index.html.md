@@ -1,12 +1,12 @@
 ---
-title: "The Best Short Books to Read This Weekend for Bookworms ..."
+title: "The Best Short Books to Read This Weekend for Bookworms 🤓 ..."
 description: "We Have Always Lived in the Castle; The Hitchhiker’s Guide to the Galaxy (1979); Interpreter of Maladies (1999); Perfume: the Story of Murderer (1985); The Passion (1997); More ..."
 url: "https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The Best Short Books to Read This Weekend for Bookworms  ...
+# The Best Short Books to Read This Weekend for Bookworms 🤓 ...
 
 I never seem to have enough time to read but when I do, I get stuck into a novel and in the blink of an eye, three or four hours are suddenly gone. Poof! I decided to find some short books to prevent this happening and found this great list on Refinery29. I can now break into my busy schedule and still enjoy a really good read. If you love to read and are busy, these best short books will give you a fix in no time.
 
@@ -168,16 +168,16 @@ Page Count: 208
 
 ## Related Posts
 
-- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
-- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
-- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
-- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
-- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
 - [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
 - [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
+- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
+- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
+- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [The Weekend Read ...](https://allwomenstalk.com/the-weekend-read-2/)
 

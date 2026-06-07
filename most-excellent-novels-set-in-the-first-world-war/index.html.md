@@ -3,7 +3,7 @@ title: "Explosive Novels Set in WW1 That Will Tug at Your Emotions ..."
 description: "Parade’s End by Ford Madox Ford (1924 – 1928); Birdsong by Sebastian Faulks (1993); A Farewell to Arms by Ernest Hemingway (1929); Maisie Dobbs by Jacqueline Winspear (2003); A Very Long Engagement by Sébastien Japrisot (1991); More ..."
 url: "https://books.allwomenstalk.com/most-excellent-novels-set-in-the-first-world-war/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Explosive Novels Set in WW1 That Will Tug at Your Emotions ...
@@ -70,16 +70,16 @@ Any of these novels set in World War I will leave you emotional, charged with wo
 
 ## Related Posts
 
+- [top coming of age books](https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/)
+- [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
+- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
 - [short story plot twist ideas](https://books.allwomenstalk.com/plot-twists-for-writers-to-keep-your-readers-interested/)
 - [mr mercedes amazon](https://books.allwomenstalk.com/bestselling-audio-books-on-amazon-to-check-out-soon/)
-- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
-- [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
-- [tailchasers song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
-- [books to inspire creativity](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 - [best vegan books](https://books.allwomenstalk.com/best-vegan-books-to-help-you-out-on-your-journey/)
+- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
+- [books to inspire creativity](https://books.allwomenstalk.com/books-about-creativity-to-inspire-you/)
 - [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
 - [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
-- [top coming of age books](https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/)
 - [Great American Novel ...](https://allwomenstalk.com/great-american-novel/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 

@@ -3,7 +3,7 @@ title: "Who Won Pulitzer Prizes in 2016? ..."
 description: "Fiction: Viet Thanh Nguyen for the Sympathizer; Drama: Lin-Manual Miranda for Hamilton; History: T.J. Stiles for Custer’s Trials: a Life on the Frontier of a New America; Biography or Autobiography: William Finnegan for Barbarian Days: a Surfing Life; Poetry: Peter Balakian for Ozone Journal; More ..."
 url: "https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Who Won Pulitzer Prizes in 2016? ...
@@ -66,16 +66,16 @@ A fascinating and intriguing selection, indeed.
 
 ## Related Posts
 
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
 - [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
-- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
+- [Jeff Foxworthy Hosts Tonight's CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
 - [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
-- [Sasha Goes for Black Accessories  the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
-- [Jeff Foxworthy Hosts Tonights CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
 - [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
-- [year of the Dog - Hollywood Premiere](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 

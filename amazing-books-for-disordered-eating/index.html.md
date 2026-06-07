@@ -3,7 +3,7 @@ title: "7 Amazing Books for Disordered Eating to Get Your Life Back on Track ...
 description: "Unbearable Lightness; Made to Crave; The Mood Cure; The Diet Cure; Goodbye ED, Hello Me; More ..."
 url: "https://books.allwomenstalk.com/amazing-books-for-disordered-eating/"
 category: "books"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Amazing Books for Disordered Eating to Get Your Life Back on Track ...
@@ -56,16 +56,16 @@ There are tons of amazing books out there for disordered eating and these are in
 
 ## Related Posts
 
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [what are the classic books everyone should read](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
-- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
 - [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [Top 10 Weight Loss Books ...](https://allwomenstalk.com/top-10-weight-loss-books/)
 - [7 Ways to Repair Your Relationship with Food ...](https://diet.allwomenstalk.com/ways-to-repair-your-relationship-with-food/)
 
