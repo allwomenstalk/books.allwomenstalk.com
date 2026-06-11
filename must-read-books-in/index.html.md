@@ -3,7 +3,7 @@ title: "8 Must Read Books for 2018 ..."
 description: "Beauty Sick: How the Cultural Obsession with Appearance Hurts Girls and Women by Renee Engeln; Feast: True Love in and out of the Kitchen by Hannah Howard; Simon Vs. the Homo Sapiens Agenda by Becky Albertalli; Beautiful Boy: a Father's Journey through His Son's Addiction; The Goldfinch by Donna Tarte; More ..."
 url: "https://books.allwomenstalk.com/must-read-books-in/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Must Read Books for 2018 ...
@@ -66,16 +66,16 @@ Buy at: _amazon.com_
 
 ## Related Posts
 
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
-- [immersion manga](https://books.allwomenstalk.com/manga-titles-for-a-beginners-immersion-into-the-genre/)
 - [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
-- [best health books](https://books.allwomenstalk.com/best-health-and-wellness-books/)
-- [the best place to read](https://books.allwomenstalk.com/the-best-places-to-read/)
+- [immersion manga](https://books.allwomenstalk.com/manga-titles-for-a-beginners-immersion-into-the-genre/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
 - [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
-- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
-- [best libraries in world](https://books.allwomenstalk.com/best-libraries-in-the-world/)
 - [instagram book club](https://books.allwomenstalk.com/find-your-next-read-from-suggestions-in-these-instagram-book-clubs/)
+- [best libraries in world](https://books.allwomenstalk.com/best-libraries-in-the-world/)
+- [best health books](https://books.allwomenstalk.com/best-health-and-wellness-books/)
 - [womens wellness books](https://books.allwomenstalk.com/wellness-books-every-woman-should-read/)
+- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
+- [the best place to read](https://books.allwomenstalk.com/the-best-places-to-read/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

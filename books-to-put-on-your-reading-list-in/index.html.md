@@ -3,7 +3,7 @@ title: "9 Books to Put on Your Reading List in 2015 ..."
 description: "Etta and Otto and Russell and James by Emma Hooper; Trigger Warning by Neil Gaiman; Nobody is Ever Missing by Catherine Lacey; The Buried Giant by Kazuo Ishiguro; God Help the Child by Toni Morrison; More ..."
 url: "https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Books to Put on Your Reading List in 2015 ...
@@ -54,12 +54,12 @@ See - told you there's lots of exciting new books coming up this year. However, 
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
 - [9 Non-Fiction Books to Read This Summer ...](https://allwomenstalk.com/9-non-fiction-books-to-read-this-summer/)
 - [9 Brilliant Autobiographies to Read ...](https://allwomenstalk.com/9-brilliant-autobiographies-to-read/)
 

@@ -3,7 +3,7 @@ title: "10 Types of People in a Creative Writing Class ..."
 description: "The Ego; Miss Likes; The Quiet One; Slacker with Talent; The Critic; More ..."
 url: "https://books.allwomenstalk.com/types-of-people-in-a-creative-writing-class/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Types of People in a Creative Writing Class ...
@@ -52,16 +52,16 @@ They’ve decided after their kids graduated college that their life was missing
 
 ## Related Posts
 
-- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
-- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
-- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
-- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
-- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
-- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
-- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
 - [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
-- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [things you will regret later in life](https://lifestyle.allwomenstalk.com/things-youll-regret-in-your-30s/)
 - [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
+- [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
+- [slow reader](https://books.allwomenstalk.com/why-it-sucks-to-be-a-slow-reader/)
+- [things to do alone in your 20s](https://lifestyle.allwomenstalk.com/things-you-should-do-alone-in-your-20s/)
+- [5 Stigmas That Are Gone or Disappearing ...](https://lifestyle.allwomenstalk.com/stigmas-that-are-gone-or-disappearing/)
+- [authentic traits](https://inspiration.allwomenstalk.com/traits-of-authentic-people/)
+- [when times are tough](https://inspiration.allwomenstalk.com/things-to-remember-when-times-are-tough/)
+- [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
 - [Seven Semi-Serious Questions about Writing](https://allwomenstalk.com/seven-semi-serious-questions-about-writing-2/)
 - [10 Reasons I Love to Write ...](https://allwomenstalk.com/10-reasons-i-love-to-write/)
 

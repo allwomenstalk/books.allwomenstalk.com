@@ -3,7 +3,7 @@ title: "7 Murder Mysteries That'll Keep You on the Edge of Your Seat ..."
 description: "And then There Were None by Agatha Christie; Tell No One by Harlan Coben; Mr Mercedes by Stephen King; Better Left Buried by Emma Haughton; Deja Dead by Kathy Reichs; More ..."
 url: "https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Murder Mysteries That'll Keep You on the Edge of Your Seat ...
@@ -71,15 +71,15 @@ Even if you typically read romance or science fiction novels, it can't hurt to r
 ## Related Posts
 
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
+- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
+- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
 - [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
 - [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
-- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
-- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

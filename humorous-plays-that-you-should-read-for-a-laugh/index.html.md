@@ -3,7 +3,7 @@ title: "7 Humorous Plays That You Should Read for a Laugh ..."
 description: "The Importance of Being Earnest; A Midsummer Night’s Dream; Private Lives; Tartuffe; The School for Scandal; More ..."
 url: "https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Humorous Plays That You Should Read for a Laugh ...
@@ -56,16 +56,16 @@ Plays can be just as enjoyable when they’re read as when they’re watched. Ha
 
 ## Related Posts
 
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
 - [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [7 Good Comedies to Watch with Friends ...](https://movies.allwomenstalk.com/good-comedies-to-watch-with-friends/)
 

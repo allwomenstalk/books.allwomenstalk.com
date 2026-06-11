@@ -3,7 +3,7 @@ title: "7 Amazing Books about Cats ..."
 description: "Jennie (Paul Gallico); The Cat Who Came in from the Cold (Deric Longden); A Street Cat Named Bob (James Bowen); Dewey the Library Cat (Vicki Myron); Tailchaser's Song (Tad Williams); More ..."
 url: "https://books.allwomenstalk.com/amazing-books-about-cats/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Amazing Books about Cats ...
@@ -56,16 +56,16 @@ Cats make wonderful subjects for books of all types. I just can't read enough fe
 
 ## Related Posts
 
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

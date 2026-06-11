@@ -3,7 +3,7 @@ title: "7 Books by Barbara Kingsolver You Need to Pick up Now ..."
 description: "The Poisonwood Bible; The Bean Trees; Pigs in Heaven; The Lacuna; Prodigal Summer; More ..."
 url: "https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Books by Barbara Kingsolver You Need to Pick up Now ...
@@ -42,15 +42,15 @@ Barbara Kingsolver is easily one of my favorite novelists, and not just because 
 
 ## Related Posts
 
+- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
 - [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
 - [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 John Irving Books You Should Read ...](https://allwomenstalk.com/7-john-irving-books-you-should-read/)

@@ -3,7 +3,7 @@ title: "10 Best Books to Read for Girls Who Are Trying to Get over a Heartbreak 
 description: "The Unlikely Pilgrimage of Harold Fry by Rachel Joyce; Paris for One by Jojo Moyes; Heartburn by Nora Ephron; Where’d You Go, Bernadette by Maria Semple; Just a Little Run around the World by Rosie Swale Pope; More ..."
 url: "https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 10 Best Books to Read for Girls Who Are Trying to Get over a Heartbreak ...
@@ -92,15 +92,15 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
-- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
-- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
-- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
-- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
 - [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
+- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
+- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
+- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
 - [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
 - [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
+- [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
+- [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
 - [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)

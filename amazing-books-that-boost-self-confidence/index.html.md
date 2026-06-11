@@ -3,7 +3,7 @@ title: "9 Amazing Books That Boost Self-Confidence ..."
 description: "Barton Goldsmith - 100 Ways to Boost Your Self-Confidence; Steven R. Covey - 7 Habits of Highly Effective People; Gary Vurnum - Instant Confidence: 92 Tips; Anthony Robbins – Awaken the Giant within; Sam Horn – What’s Holding You Back?; More ..."
 url: "https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 9 Amazing Books That Boost Self\-Confidence ...
@@ -87,16 +87,16 @@ These were 9 of my favorite self-help books that boost self-confidence and incre
 
 ## Related Posts
 
-- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
-- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
-- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
-- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
 - [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
-- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
-- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
-- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
 - [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
+- [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
+- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
+- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
+- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
+- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
 - [Top 10 Books on Self-Improvement ...](https://allwomenstalk.com/top-10-books-on-self-improvement/)
 - [12 Best Ways to Improve Your Self Confidence ...](https://allwomenstalk.com/12-best-ways-to-improve-your-self-confidence/)
 

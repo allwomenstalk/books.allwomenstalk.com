@@ -3,7 +3,7 @@ title: "7 Phenomenal and Uplifting Authors to Boost Your Mood ..."
 description: "Shel Silverstein-Where the Sidewalk Ends; Maya Angelou- I Know Why the Caged Bird Sings; Don Piper- 90 Minutes in Heaven; The Dalai Lama- the Art of Happiness; Menna Van Praag- the House at the End of Hope Street; More ..."
 url: "https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Phenomenal and Uplifting Authors to Boost Your Mood ...
@@ -70,16 +70,16 @@ There are so many wonderful authors with whom to spend an afternoon, or even a S
 
 ## Related Posts
 
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
-- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
-- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
-- [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
-- [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
 - [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
-- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
 - [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
-- [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
 - [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
+- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
+- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
+- [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
+- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
+- [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
 - [7 Songs to Inspire a Happy Mood ...](https://allwomenstalk.com/7-songs-to-inspire-a-happy-mood/)
 - [7 Great Reads when You Are Feeling Blue ...](https://allwomenstalk.com/great-reads-when-you-are-feeling-blue/)
 

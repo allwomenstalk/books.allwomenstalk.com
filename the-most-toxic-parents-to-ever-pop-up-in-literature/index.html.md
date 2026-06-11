@@ -3,7 +3,7 @@ title: "The Most Toxic Parents to Ever Pop up in Literature ..."
 description: "Charlotte Haze – the Mother from Lolita by Vladimir Nabokov; Corrine Dollanganger – the Mother from Flowers in the Attic by V. C. Andrews; Queen Gertrude – the Mother from Hamlet by Shakespeare; Jack Torrance – the Father from the Shining by Stephen King; Margaret White – the Mother from Carrie by Stephen King; More ..."
 url: "https://books.allwomenstalk.com/the-most-toxic-parents-to-ever-pop-up-in-literature/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # The Most Toxic Parents to Ever Pop up in Literature ...
@@ -116,16 +116,16 @@ Name the worst parent(s) you've ever read about. What made them so heinous?
 
 ## Related Posts
 
-- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
-- [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
-- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
-- [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
-- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
-- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
-- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
-- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
-- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
 - [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
+- [mesmerizing book](https://books.allwomenstalk.com/not-going-on-vacation-these-books-will-whisk-you-away-to-exotic-locations/)
+- [sexy stories for woman](https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/)
+- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
+- [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
+- [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
+- [books written by women](https://books.allwomenstalk.com/must-read-books-by-women-not-originally-written-in-english/)
+- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
+- [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
+- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
 - [7 Tween Series I Read as a Kid ...](https://lifestyle.allwomenstalk.com/tween-series-i-read-as-a-kid/)
 - [Death, Dying, Love and the Littlest Lives ...](https://allwomenstalk.com/death-dying-love-and-the-littlest-lives/)
 

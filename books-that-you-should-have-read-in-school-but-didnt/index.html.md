@@ -3,7 +3,7 @@ title: "8 Books That You Should Have Read in School but Didn't ..."
 description: "The Great Gatsby by F. Scott Fitzgerald; Of Mice and Men by John Steinbeck; Catcher in the Rye by J.D. Salinger; Night by Elie Wiesel; Heart of Darkness by Joseph Conrad; More ..."
 url: "https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Books That You Should Have Read in School but Didn't ...
@@ -63,15 +63,15 @@ We have all heard of these books, and probably even know the plot. But without t
 ## Related Posts
 
 - [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
-- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
 - [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
 - [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
 - [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
+- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
 - [8 Life Lessons They Should Teach in School ...](https://lifestyle.allwomenstalk.com/life-lessons-they-should-teach-in-school/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 

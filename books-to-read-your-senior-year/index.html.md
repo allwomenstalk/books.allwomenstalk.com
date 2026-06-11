@@ -3,7 +3,7 @@ title: "7 Books to Read Your Senior Year ..."
 description: "The Diary of a Young Girl- Anne Frank; I Am Malala- Malala Yousafzai; Divergent- Veronica Roth; The Naked Roommate- Harlan Cohen; A Connecticut Yankee in King Arthur’s Court- Mark Twain; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-your-senior-year/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Books to Read Your Senior Year ...
@@ -63,16 +63,16 @@ Throughout your schooling, you've likely been exposed to a number of great books
 
 ## Related Posts
 
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

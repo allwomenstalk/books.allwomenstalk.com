@@ -3,7 +3,7 @@ title: "7 Christian Book Authors to Inspire You ..."
 description: "C.S. Lewis; Max Lucado; Karen Kingsbury; Ted Dekker; Frank Peretti; More ..."
 url: "https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/"
 category: "books"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Christian Book Authors to Inspire You ...
@@ -57,15 +57,15 @@ Who’s your favorite Christian book author? Do you get the books at the booksto
 ## Related Posts
 
 - [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
+- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
+- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
 - [leadership books for young adults](https://inspiration.allwomenstalk.com/best-leadership-books-every-young-leader-should-read/)
 - [magazine topics](https://lifestyle.allwomenstalk.com/magazines-chock-full-of-awesome-information/)
-- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
-- [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 
