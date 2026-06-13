@@ -3,7 +3,7 @@ title: "7 Great Rom-Com Books to Read This Fall ..."
 description: "Pride and Prejudice; Bridget Jones's Diary; I’ve Got Your Number; Edenbrooke; Emma; More ..."
 url: "https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Great Rom\-Com Books to Read This Fall ...
@@ -57,14 +57,14 @@ Yes, I may be a bit addicted to reading, and specifically, addicted to reading r
 ## Related Posts
 
 - [books everyone should read before they die](https://books.allwomenstalk.com/books-to-read-before-you-die/)
-- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
 - [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
+- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
 - [cookbooks by celebrities](https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/)
 - [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
-- [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
 - [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
 - [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
 - [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
 - [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

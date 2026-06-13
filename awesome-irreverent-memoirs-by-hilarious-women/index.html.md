@@ -3,7 +3,7 @@ title: "7 Awesome, Irreverent Memoirs by Hilarious Women ..."
 description: "Bossypants by Tina Fey; Dark at the Roots by Sarah Thyre; Autobiography of a Fat Bride by Laurie Notaro; Is It Just Me?: or is It Nuts out There? by Whoopi Goldberg; Seriously...I'm Kidding by Ellen DeGeneres; More ..."
 url: "https://books.allwomenstalk.com/awesome-irreverent-memoirs-by-hilarious-women/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Awesome, Irreverent Memoirs by Hilarious Women ...
@@ -66,16 +66,16 @@ Now, in the interest of full disclosure, some of these are very irreverent. Some
 
 ## Related Posts
 
+- [quotes for women's history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
+- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
 - [inspirations beauty](https://beauty.allwomenstalk.com/amazing-beauty-inspirations-from-disney-princesses/)
 - [good gospel music](https://music.allwomenstalk.com/of-the-greatest-female-vocalists-of-all-time/)
 - [greek.goddess](https://lifestyle.allwomenstalk.com/greek-goddesses-you-will-want-to-get-to-know/)
 - [female guitar artists](https://music.allwomenstalk.com/most-rocking-female-guitarists/)
-- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
-- [brittany should have won project runway](https://celebs.allwomenstalk.com/smart-supermodels-who-have-proven-that-intelligence-is-sexy/)
-- [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
 - [famous female journalists](https://books.allwomenstalk.com/female-journalists-from-the-past-and-present/)
-- [quotes for women's history month](https://inspiration.allwomenstalk.com/quotes-from-susan-b-anthony-to-celebrate-womens-history-month/)
 - [super female heroes](https://funny.allwomenstalk.com/female-super-heroes-that-seriously-kick-butt/)
+- [original disney princess movies in order](https://beauty.allwomenstalk.com/unrealistic-beauty-expectations-from-disney-princesses/)
+- [alicia florrick mother](https://teen.allwomenstalk.com/reasons-why-alicia-florrick-should-be-a-role-model-for-young-women/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [7 Extraordinary Women Who Changed the World ...](https://celebs.allwomenstalk.com/extraordinary-women-who-changed-the-world/)
 

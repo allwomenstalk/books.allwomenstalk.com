@@ -3,7 +3,7 @@ title: "7 Must-read Crime Thrillers for Chilly Autumn Days ..."
 description: "Talking to the Dead by Harry Bingham; The Nightmare by Lars Kepler; The Devil’s Garden by Richard Montanari; Blue Monday by Nicci French; Cold Granite by Stuart MacBride; More ..."
 url: "https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Must\-read Crime Thrillers for Chilly Autumn Days ...
@@ -56,16 +56,16 @@ There’s nothing like a good crime thriller to fire up your imagination, and re
 
 ## Related Posts
 
-- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
-- [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
+- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
 - [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
-- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
-- [cookbooks by celebrities](https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/)
 - [books everyone should read before they die](https://books.allwomenstalk.com/books-to-read-before-you-die/)
-- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
+- [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
+- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
 - [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
 - [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
-- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
+- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
+- [cookbooks by celebrities](https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/)
+- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

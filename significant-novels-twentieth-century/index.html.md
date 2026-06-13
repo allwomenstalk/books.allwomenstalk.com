@@ -3,7 +3,7 @@ title: "20 Iconic Novels of The 20th Century …"
 description: "The Great Gatsby by F. Scott Fitzgerald; 1984 by George Orwell; To Kill a Mockingbird by Harper Lee; One Hundred Years of Solitude by Gabriel García Márquez; Ulysses by James Joyce; More ..."
 url: "https://books.allwomenstalk.com/significant-novels-twentieth-century/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 20 Iconic Novels of The 20th Century …
@@ -92,14 +92,14 @@ It's daunting, isn't it? After traversing through the landscapes of prose painte
 
 ## Related Posts
 
-- [robert mccammon movies](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
+- [when was the first twilight book released](https://twilight.allwomenstalk.com/a-new-twilight-book-released-new-novella/)
+- [20 Iconic French Writers That Shape the Literary W...](https://books.allwomenstalk.com/iconic-french-writers-literature/)
+- [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [how many books are in the twilight saga](https://twilight.allwomenstalk.com/a-list-of-the-books-in-the-twilight-series/)
-- [scintillatingly](https://travel.allwomenstalk.com/scintillatingly-interesting-and-useful-travel-books-everyone-should-own/)
-- [20 Iconic French Writers That Shape the Literary W...](https://books.allwomenstalk.com/iconic-french-writers-literature/)
 - [Which Twilight Book Was My Favorite and Why ...](https://twilight.allwomenstalk.com/which-twilight-book-was-my-favorite-and-why/)
-- [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
-- [when was the first twilight book released](https://twilight.allwomenstalk.com/a-new-twilight-book-released-new-novella/)
+- [scintillatingly](https://travel.allwomenstalk.com/scintillatingly-interesting-and-useful-travel-books-everyone-should-own/)
+- [robert mccammon movies](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)

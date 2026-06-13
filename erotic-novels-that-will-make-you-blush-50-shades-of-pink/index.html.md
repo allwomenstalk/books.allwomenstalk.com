@@ -3,7 +3,7 @@ title: "9 Erotic Novels That Will Make You Blush 50 Shades of Pink ..."
 description: "Bared to You by Sylvia Day; Sweet Addiction by Maya Banks; House of Holes by Nicholson Baker; The Crescendo Collection by Leah Brooke; The Sexual Life of Catherine M. by Catherine Millet; More ..."
 url: "https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Erotic Novels That Will Make You Blush 50 Shades of Pink ...
@@ -86,16 +86,16 @@ Which are you going to read? Do you have any recommendations of your own to shar
 
 ## Related Posts
 
-- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
 - [poe museum.org](https://travel.allwomenstalk.com/must-go-destinations-for-book-nerds/)
+- [steam punk novels](https://books.allwomenstalk.com/steampunk-novels-thatll-make-you-crazy-about-the-genre/)
+- [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
+- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
+- [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
+- [books like fairy tale stephen king](https://books.allwomenstalk.com/love-stephen-king-read-these-similar-novels/)
+- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
 - [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
 - [best free books in kindle](https://books.allwomenstalk.com/the-best-free-mystery-books-on-kindle/)
-- [steam punk novels](https://books.allwomenstalk.com/steampunk-novels-thatll-make-you-crazy-about-the-genre/)
-- [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
-- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
 - [swamplandia controversy](https://books.allwomenstalk.com/essentials-for-your-summer-reading-list/)
-- [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
-- [books like fairy tale stephen king](https://books.allwomenstalk.com/love-stephen-king-read-these-similar-novels/)
 - [8 Sexy Songs to Get You in the Mood ...](https://love.allwomenstalk.com/sexy-songs-to-get-you-in-the-mood/)
 - [15 Romantic Gifts for Girls ...](https://allwomenstalk.com/10-romantic-gifts-for-girls/)
 

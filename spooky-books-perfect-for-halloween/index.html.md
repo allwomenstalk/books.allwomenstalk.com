@@ -3,7 +3,7 @@ title: "9 Spooky Books Perfect to Read if You Love Halloween ..."
 description: "Carrie by Stephen King; The Complete Stories and Poems by Edgar Allen Poe; The Amityville Horror by Jay Anson; The Man in the Forest by Michael Warriner; Sorrow’s Point by Danielle DeVor; More ..."
 url: "https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 9 Spooky Books Perfect to Read if You Love Halloween ...
@@ -78,16 +78,16 @@ I hope you enjoy this list I compiled! What is your favorite horror book?
 
 ## Related Posts
 
-- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
-- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
 - [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
 - [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
-- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
+- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
+- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
 - [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
 - [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
 - [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
+- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 

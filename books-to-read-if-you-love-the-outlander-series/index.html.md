@@ -3,7 +3,7 @@ title: "5 Books to Read if You Love the Outlander Series ..."
 description: "Seven Stones to Stand or Fall: a Collection of Outlander Fiction; Clandara; Hard-Hearted Highlander; Stars over Clear Lake; Into the Wilderness; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Books to Read if You Love the Outlander Series ...
@@ -43,16 +43,16 @@ $14.45 at amazon.com_
 
 ## Related Posts
 
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
-- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
 - [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
+- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
+- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
+- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [5 Books for a Wide Reader ...](https://allwomenstalk.com/5-books-for-a-wide-reader/)
 

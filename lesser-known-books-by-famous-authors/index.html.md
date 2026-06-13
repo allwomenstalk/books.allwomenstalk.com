@@ -3,7 +3,7 @@ title: "Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ...
 description: "The Last Man (Mary Shelley); The Inheritors (William Golding); The Nightingale and the Rose (Oscar Wilde); The Cat and the Devil (James Joyce); Work (Louisa May Alcott); More ..."
 url: "https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ...
@@ -56,16 +56,16 @@ So do check out the lesser-known works by your favorite authors; you'll discover
 
 ## Related Posts
 
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
 - [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 

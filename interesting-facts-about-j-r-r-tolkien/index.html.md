@@ -3,7 +3,7 @@ title: "How Much Trivia do You Know about J.R.R. Tolkien? ..."
 description: "He Wasn’t Born in England; He Had a Flair for the Dramatic; He Was Quite a Romantic; He Invented Languages for Fun; He Wasn’t Fond of Nazis; More ..."
 url: "https://books.allwomenstalk.com/interesting-facts-about-j-r-r-tolkien/"
 category: "books"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # How Much Trivia do You Know about J.R.R. Tolkien? ...
@@ -50,15 +50,15 @@ _omgfacts.com_
 ## Related Posts
 
 - [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
-- [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
 - [bethany mota niece](https://celebs.allwomenstalk.com/interesting-facts-about-bethany-mota/)
-- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
-- [pebble clouds](https://lifestyle.allwomenstalk.com/facts-about-cloud-formations-you-might-not-know-of/)
-- [why are spider webs a popular christmas decoration...](https://lifestyle.allwomenstalk.com/interesting-facts-about-christmas-that-you-didnt-know/)
 - [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
+- [pebble clouds](https://lifestyle.allwomenstalk.com/facts-about-cloud-formations-you-might-not-know-of/)
 - [medieval hygiene facts](https://health.allwomenstalk.com/facts-about-hygiene-that-may-surprise-you/)
 - [what phenomena in the natural world do mythical cr...](https://lifestyle.allwomenstalk.com/possible-scientific-explanations-for-mythical-beings/)
+- [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
+- [why are spider webs a popular christmas decoration...](https://lifestyle.allwomenstalk.com/interesting-facts-about-christmas-that-you-didnt-know/)
 - [christmas facts about reindeer](https://lifestyle.allwomenstalk.com/fascinating-facts-about-reindeer/)
+- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
 - [Which Twilight Book Was My Favorite and Why ...](https://twilight.allwomenstalk.com/which-twilight-book-was-my-favorite-and-why/)
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 
