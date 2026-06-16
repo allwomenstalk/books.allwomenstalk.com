@@ -3,7 +3,7 @@ title: "7 Writing Prompts to Get Your Muse Moving ..."
 description: "The Ugly Duckling Prompt; The Toy Story; I've Got a Secret; A Game of Telephone; Your Ears Are Burning; More ..."
 url: "https://books.allwomenstalk.com/writing-prompts-to-get-your-muse-moving/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Writing Prompts to Get Your Muse Moving ...
@@ -42,16 +42,16 @@ With the new year here, you might want to start writing daily in a journal, or p
 
 ## Related Posts
 
+- [small acts of courage](https://inspiration.allwomenstalk.com/little-acts-of-bravery-you-should-commit-each-day/)
+- [how to write planner](https://lifestyle.allwomenstalk.com/things-to-write-in-your-planner-this-year/)
+- [morning notes](https://inspiration.allwomenstalk.com/things-to-write-down-every-morning-to-have-a-great-day/)
 - [how to get rid of old habits](https://inspiration.allwomenstalk.com/inspirational-tips-to-help-you-get-rid-of-old-habits-for-good/)
 - [quotes about leaving negativity behind](https://inspiration.allwomenstalk.com/ways-to-attract-positivity-and-leave-negativity-behind/)
 - [how to be more put together](https://lifestyle.allwomenstalk.com/quick-tips-for-being-more-put-together-on-a-daily-basis/)
-- [small acts of courage](https://inspiration.allwomenstalk.com/little-acts-of-bravery-you-should-commit-each-day/)
-- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
-- [morning notes](https://inspiration.allwomenstalk.com/things-to-write-down-every-morning-to-have-a-great-day/)
-- [how to stick to commitments](https://inspiration.allwomenstalk.com/ways-to-stick-to-a-commitment-when-you-are-lacking-motivation/)
 - [what a great year](https://inspiration.allwomenstalk.com/ways-to-have-a-great-year/)
+- [how to form a good habit](https://inspiration.allwomenstalk.com/important-steps-to-form-a-good-habit/)
+- [how to stick to commitments](https://inspiration.allwomenstalk.com/ways-to-stick-to-a-commitment-when-you-are-lacking-motivation/)
 - [site:allwomenstalk.com](https://inspiration.allwomenstalk.com/ways-to-supercharge-your-life-in/)
-- [how to write planner](https://lifestyle.allwomenstalk.com/things-to-write-in-your-planner-this-year/)
 - [7 Tips for Writing Poetry ...](https://lifestyle.allwomenstalk.com/tips-for-writing-poetry/)
 - [7 Places to Find Writing Inspiration ...](https://allwomenstalk.com/7-places-to-find-writing-inspiration/)
 

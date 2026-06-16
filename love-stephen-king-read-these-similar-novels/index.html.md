@@ -3,7 +3,7 @@ title: "Love Stephen King? Read These 7 Similar Novels ..."
 description: "Watchers by Dean Koontz; NOS4A2 by Joe Hill; The Hellbound Heart by Clive Barker; 14 by Peter Clines; The Exorcist by William Peter Blatty; More ..."
 url: "https://books.allwomenstalk.com/love-stephen-king-read-these-similar-novels/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Love Stephen King? Read These 7 Similar Novels ...
@@ -56,15 +56,15 @@ It's hard to write as well as the great Stephen King, but these novels come clos
 
 ## Related Posts
 
-- [steam punk novels](https://books.allwomenstalk.com/steampunk-novels-thatll-make-you-crazy-about-the-genre/)
-- [from the notebooks of a middle school princess boo...](https://books.allwomenstalk.com/these-books-will-remind-you-of-your-younger-years/)
-- [book lover pillow](https://books.allwomenstalk.com/dazzling-decorations-for-book-lovers-to-buy/)
-- [best free books in kindle](https://books.allwomenstalk.com/the-best-free-mystery-books-on-kindle/)
-- [tell me what book to read](https://books.allwomenstalk.com/websites-thatll-tell-you-what-book-to-read-next/)
-- [swamplandia controversy](https://books.allwomenstalk.com/essentials-for-your-summer-reading-list/)
-- [what should i read next website](https://books.allwomenstalk.com/websites-only-real-bookworms-can-appreciate/)
-- [awaken the giant within amazon](https://books.allwomenstalk.com/here-are-books-to-get-from-amazon-if-you-really-want-to-succeed/)
 - [what is fan stories website](https://books.allwomenstalk.com/websites-thatll-teach-you-how-to-write-fan-fiction/)
+- [awaken the giant within amazon](https://books.allwomenstalk.com/here-are-books-to-get-from-amazon-if-you-really-want-to-succeed/)
+- [swamplandia controversy](https://books.allwomenstalk.com/essentials-for-your-summer-reading-list/)
+- [from the notebooks of a middle school princess boo...](https://books.allwomenstalk.com/these-books-will-remind-you-of-your-younger-years/)
+- [tell me what book to read](https://books.allwomenstalk.com/websites-thatll-tell-you-what-book-to-read-next/)
+- [what should i read next website](https://books.allwomenstalk.com/websites-only-real-bookworms-can-appreciate/)
+- [best free books in kindle](https://books.allwomenstalk.com/the-best-free-mystery-books-on-kindle/)
+- [book lover pillow](https://books.allwomenstalk.com/dazzling-decorations-for-book-lovers-to-buy/)
+- [steam punk novels](https://books.allwomenstalk.com/steampunk-novels-thatll-make-you-crazy-about-the-genre/)
 - [scandals of hollywood stars](https://books.allwomenstalk.com/hollywood-scandals-books-that-dish-the-dirt/)
 - [7 Scariest Stephen King Novels ...](https://allwomenstalk.com/7-scariest-stephen-king-novels/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

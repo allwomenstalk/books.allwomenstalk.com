@@ -3,7 +3,7 @@ title: "15 Weird Books to Completely Blow Your Mind ..."
 description: "Flatland - a Romance of Many Dimensions by Edwin a. Abbott; Labyrinths - Selected Stories and Other Writings by Jorge Luis Borges; The Animal Family by Randall Jarrell; The Well at the World's End by William Morris; Naked Lunch by William S. Burroughs; More ..."
 url: "https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 15 Weird Books to Completely Blow Your Mind ...
@@ -87,16 +87,16 @@ You want a weird book? This one is weird and haunting! It was a best-seller in 1
 
 ## Related Posts
 
-- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
-- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
 - [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
+- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
 - [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
 - [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
 - [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
 - [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
 - [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
-- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
 - [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
+- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 

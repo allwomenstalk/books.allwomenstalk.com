@@ -3,7 +3,7 @@ title: "12 Books That Changed the World ..."
 description: "The Diary of Anne Frank by Anne Frank; The Diary of Samuel Pepys by Samuel Pepys; Harry Potter and the Philosopher’s Stone by J.K. Rowling; Aesop’s Fables by Aesop; To Kill a Mockingbird by Harper Lee; More ..."
 url: "https://books.allwomenstalk.com/books-that-changed-the-world-2/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 12 Books That Changed the World ...
@@ -90,16 +90,16 @@ Whether you like it or not, Fifty Shades definitely changed the world! It made e
 
 ## Related Posts
 
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
-- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
-- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
+- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
+- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [5 Facts on 2012 ...](https://twilight.allwomenstalk.com/facts-on/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 

@@ -3,7 +3,7 @@ title: "7 Books to Read when You've Been Burned by Love ..."
 description: "Nice Guys, Freaks & Creeps: a Dating Memoir by Jennifer Knightstep; The between Boyfriends Book: a Collection of Cautiously Hopeful Essays by Cindy Chupack; What Was I Thinking?: 58 Bad Boyfriend Stories by Barbara Davilman; Split: a Memoir of Divorce by Suzanne Finnamore; Six-Word Memoirs on Love and Heartbreak by Larry Smith; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Books to Read when You've Been Burned by Love ...
@@ -56,16 +56,16 @@ I'm a big believer in using books as therapy. Whether I'm mad, sad, happy, or hy
 
 ## Related Posts
 
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
-- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [7 Teen Books about Relationships ...](https://allwomenstalk.com/7-teen-books-about-relationships/)
 - [7 Ways to Keep the Fire Burning in Your Relationsh...](https://love.allwomenstalk.com/ways-to-keep-the-fire-burning-in-your-relationship/)
 

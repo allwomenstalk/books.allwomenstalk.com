@@ -3,7 +3,7 @@ title: "25 Kids Books You Simply Must Read Again as an Adult ..."
 description: "A Wrinkle in Time; Little House on the Prairie; Where the Sidewalk Ends; International Dot Day; Are You There, God? It's Me, Margaret; More ..."
 url: "https://books.allwomenstalk.com/kids-books-you-simply-must-read-again-as-an-adult/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 25 Kids Books You Simply Must Read Again as an Adult ...
@@ -157,16 +157,16 @@ Which of these books did you read as a kid? Would you read any of them again?
 
 ## Related Posts
 
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
-- [tess gerritson](https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/)
 - [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
-- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
-- [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
-- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
 - [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
+- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
+- [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
 - [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [tess gerritson](https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

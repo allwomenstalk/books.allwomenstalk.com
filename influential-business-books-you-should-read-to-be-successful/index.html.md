@@ -3,7 +3,7 @@ title: "Influential Business Books You Should Read to Be Successful ..."
 description: "How to Win Friends and Influence People – Dale Carnegie; The Magic of Thinking Big – David Schwartz; Purple Cow – Seth Godin; Focal Point – Brian Tracy; Think and Grow Rich – Napoleon Hill; More ..."
 url: "https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Influential Business Books You Should Read to Be Successful ...
@@ -63,16 +63,16 @@ Sources:
 
 ## Related Posts
 
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
 - [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
-- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
 - [10 Tips on How to Start a Small Business ...](https://money.allwomenstalk.com/tips-on-how-to-start-a-small-business/)
 - [8 Tips on Starting Your Own Business ...](https://allwomenstalk.com/8-tips-on-starting-your-own-business/)
 

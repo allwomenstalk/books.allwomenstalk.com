@@ -3,7 +3,7 @@ title: "Celeb Autobiographies You Need on Your Coffee Table ..."
 description: "Choose Your Own Autobiography by Neil Patrick Harris; Bossypants by Tina Fey; Yes Please by Amy Poehler; Lucky Man by Michael J. Fox; My Booky Wook by Russell Brand; More ..."
 url: "https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Celeb Autobiographies You Need on Your Coffee Table ...
@@ -70,16 +70,16 @@ You'll be shocked by some of the things you learn in these autobiographies. Bein
 
 ## Related Posts
 
-- [Here Are the Books You Must Devour before You Turn...](https://books.allwomenstalk.com/here-are-the-books-you-must-devour-before-you-turn/)
-- [Books on Kindle You Won't Believe Are Free!](https://books.allwomenstalk.com/books-on-kindle-you-wont-believe-are-free/)
-- [Fantasy Novels GOT Fans Will Love ...](https://books.allwomenstalk.com/fantasy-novels-got-fans-will-love/)
-- [books better than the movie](https://books.allwomenstalk.com/books-that-are-way-better-than-their-movie/)
-- [7 Summer Beach Reads You Must Toss in Your Bag Tod...](https://books.allwomenstalk.com/summer-beach-reads-you-must-toss-in-your-bag-today/)
 - [25 Kids Books You Simply Must Read Again as an Adu...](https://books.allwomenstalk.com/kids-books-you-simply-must-read-again-as-an-adult/)
-- [7 Novels about the Beach to Read in the Sand ...](https://books.allwomenstalk.com/novels-about-the-beach-to-read-in-the-sand/)
+- [Fantasy Novels GOT Fans Will Love ...](https://books.allwomenstalk.com/fantasy-novels-got-fans-will-love/)
 - [7 Magical Books Harry Potter Fans Will Love ...](https://books.allwomenstalk.com/magical-books-harry-potter-fans-will-love/)
 - [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
 - [tess gerritson](https://books.allwomenstalk.com/murder-mysteries-thatll-keep-you-on-the-edge-of-your-seat/)
+- [Here Are the Books You Must Devour before You Turn...](https://books.allwomenstalk.com/here-are-the-books-you-must-devour-before-you-turn/)
+- [Books on Kindle You Won't Believe Are Free!](https://books.allwomenstalk.com/books-on-kindle-you-wont-believe-are-free/)
+- [books better than the movie](https://books.allwomenstalk.com/books-that-are-way-better-than-their-movie/)
+- [7 Summer Beach Reads You Must Toss in Your Bag Tod...](https://books.allwomenstalk.com/summer-beach-reads-you-must-toss-in-your-bag-today/)
+- [7 Novels about the Beach to Read in the Sand ...](https://books.allwomenstalk.com/novels-about-the-beach-to-read-in-the-sand/)
 - [9 Cameo Appearances by Authors in Movie Adaptation...](https://movies.allwomenstalk.com/cameo-appearances-by-authors-in-movie-adaptations-of-their-books/)
 - [7 Great Books to Read before the Movie Comes out ....](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
 

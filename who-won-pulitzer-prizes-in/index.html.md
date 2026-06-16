@@ -3,7 +3,7 @@ title: "Who Won Pulitzer Prizes in 2016? ..."
 description: "Fiction: Viet Thanh Nguyen for the Sympathizer; Drama: Lin-Manual Miranda for Hamilton; History: T.J. Stiles for Custer’s Trials: a Life on the Frontier of a New America; Biography or Autobiography: William Finnegan for Barbarian Days: a Surfing Life; Poetry: Peter Balakian for Ozone Journal; More ..."
 url: "https://books.allwomenstalk.com/who-won-pulitzer-prizes-in/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Who Won Pulitzer Prizes in 2016? ...
@@ -66,16 +66,16 @@ A fascinating and intriguing selection, indeed.
 
 ## Related Posts
 
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
-- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
 - [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
-- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
 - [Jeff Foxworthy Hosts Tonight's CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
 - [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
+- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 

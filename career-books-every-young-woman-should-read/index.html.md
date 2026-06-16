@@ -3,7 +3,7 @@ title: "9 Career Books Every Young Woman Should Read ..."
 description: "20 Something, 20 Everything by Christine Hassler; Women, Work & the Art of Savoir Faire by Mireille Guiliano; Bossypants by Tina Fey; Nice Girls Don’t Get the Corner Office by Lois P. Frankel; I Shouldn't Be Telling You This by Kate White; More ..."
 url: "https://books.allwomenstalk.com/career-books-every-young-woman-should-read/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 9 Career Books Every Young Woman Should Read ...
@@ -68,14 +68,14 @@ I don't believe in self-help books but I wouldn't call these self-help books as 
 
 ## Related Posts
 
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
 - [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
-- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)

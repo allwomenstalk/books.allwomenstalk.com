@@ -3,7 +3,7 @@ title: "7 Great Books to Read to Your Child before Tucking Them in at Night ..."
 description: "Grandfather Twilight; Big Red Barn; The Runaway Bunny; A Chair for My Mother; Owl Moon; More ..."
 url: "https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Great Books to Read to Your Child before Tucking Them in at Night ...
@@ -56,14 +56,14 @@ Since every child enjoys being read to at night, having some of these great chil
 
 ## Related Posts
 
-- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
-- [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
-- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
 - [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
+- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
+- [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
 - [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
 - [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
 - [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)

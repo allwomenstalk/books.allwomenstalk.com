@@ -3,7 +3,7 @@ title: "7 Unforgettable Bedtime Books for Your Children …"
 description: "The Little Prince – Antoine De Saint-Exupéry; The Giving Tree – Shel Silverstein; Charlotte’s Web – E.B. White; Where the Wild Things Are – Maurice Sendak; The Cat in the Hat – Dr. Seuss; More ..."
 url: "https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Unforgettable Bedtime Books for Your Children …
@@ -67,16 +67,16 @@ Sources:
 
 ## Related Posts
 
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
 - [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
 - [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [7 Fun Beds for Your Kids ...](https://parenting.allwomenstalk.com/fun-beds-for-your-kids/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 

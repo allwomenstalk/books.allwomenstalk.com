@@ -3,7 +3,7 @@ title: "19 Books for Food Lovers That Aren't Cookbooks ..."
 description: "The Corrections by Jonathan Franzen; Charlie and the Chocolate Factory; The Middlesteins by Jami Attenberg; Fast Food Nation by Eric Schlosser; Food in History by Reay Tannahill; More ..."
 url: "https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 19 Books for Food Lovers That Aren't Cookbooks ...
@@ -166,16 +166,16 @@ We'd love to hear any of your recommendations for books about food that aren't r
 
 ## Related Posts
 
-- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
-- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
-- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
 - [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
-- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
-- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
+- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
+- [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
+- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
 - [10 Tasty Italian Cookbooks ...](https://cooking.allwomenstalk.com/tasty-italian-cookbooks/)
 - [7 Essential Meals for One Cookbooks ...](https://cooking.allwomenstalk.com/essential-meals-for-one-cookbooks/)
 

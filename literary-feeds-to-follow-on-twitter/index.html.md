@@ -3,7 +3,7 @@ title: "9 Literary Feeds You Need to Follow on Twitter ..."
 description: "@MaudNewton; @Litchat; @guardianbooks; @Disneywords; @Electriclit; More ..."
 url: "https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/"
 category: "books"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 9 Literary Feeds You Need to Follow on Twitter ...
@@ -50,15 +50,15 @@ Have you got some favorite Twitter feeds for book lovers to share?
 
 ## Related Posts
 
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
 - [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
 - [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
-- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [5 Gastro-Terrific Posts to BlogStalk...](https://allwomenstalk.com/5-gastro-terrific-posts-to-blogstalk/)
 - [17 Best Lifestyle Blogs ...](https://allwomenstalk.com/7-best-lifestyle-blogs/)
