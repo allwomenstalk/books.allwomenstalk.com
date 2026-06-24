@@ -3,7 +3,7 @@ title: "Read These 7 Novels Set around Christmas Time ..."
 description: "Skipping Christmas by John Grisham; Christmas Letters by Debbie Macomber; Winter Street by Elin Hilderbrand; The Christmas Bus by Melody Carlson; The Snow Globe by Sheila Roberts; More ..."
 url: "https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Read These 7 Novels Set around Christmas Time ...
@@ -70,16 +70,16 @@ Reading is good for your mind, which is why you should pick up as many books as 
 
 ## Related Posts
 
-- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
 - [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
 - [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
-- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
 - [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
 - [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
+- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
 - [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [8 Great Romantic Novels to Read on Vacation ...](https://allwomenstalk.com/8-great-romantic-novels-to-read-on-vacation/)
 

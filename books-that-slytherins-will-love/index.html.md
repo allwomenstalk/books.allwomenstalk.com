@@ -3,7 +3,7 @@ title: "7 Books That Slytherins Will Love ..."
 description: "The Count of Monte Cristo by Alexandre Dumas; Far from the Madding Crowd by Thomas Hardy; Heist Society by Ally Carter; The Martian by Andy Weir; Sense and Sensibility by Jane Austen; More ..."
 url: "https://books.allwomenstalk.com/books-that-slytherins-will-love/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Books That Slytherins Will Love ...
@@ -56,16 +56,16 @@ Have you read any of these books before?
 
 ## Related Posts
 
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
+- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

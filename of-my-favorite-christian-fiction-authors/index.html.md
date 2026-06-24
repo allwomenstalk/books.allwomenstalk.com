@@ -3,7 +3,7 @@ title: "7 of My Favorite Christian Fiction Authors ..."
 description: "Karen Witemeyer; Sarah Sundin; Mary Connealy; Tamera Alexander; Marta Perry; More ..."
 url: "https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 of My Favorite Christian Fiction Authors ...
@@ -56,16 +56,16 @@ Now it’s your turn. I am always on the lookout for a new favorite Christian fi
 
 ## Related Posts
 
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
 - [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
 - [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 

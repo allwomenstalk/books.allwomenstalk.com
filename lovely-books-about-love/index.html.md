@@ -3,7 +3,7 @@ title: "7 Lovely Books about Love ..."
 description: "Other People’s Love Letters; Love Letters of Great Men; Data, a Love Story; Dear Old Love; Missed Connections: Love, Lost and Found; More ..."
 url: "https://books.allwomenstalk.com/lovely-books-about-love/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Lovely Books about Love ...
@@ -64,15 +64,15 @@ What’s your favorite book about love? Have you read any of these? I really lov
 ## Related Posts
 
 - [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
 - [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 

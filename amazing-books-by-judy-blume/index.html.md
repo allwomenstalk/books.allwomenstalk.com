@@ -3,7 +3,7 @@ title: "7 Amazing Books by Judy Blume ..."
 description: "Tales of a Fourth Grade Nothing; Superfudge; Otherwise Known as Sheila the Great; Blubber; Just as Long as We're Together; More ..."
 url: "https://books.allwomenstalk.com/amazing-books-by-judy-blume/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Amazing Books by Judy Blume ...
@@ -56,16 +56,16 @@ Although I haven't gotten a chance to read her entire collection (i.e. "Are You 
 
 ## Related Posts
 
-- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
-- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
-- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
-- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
-- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
-- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
-- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
+- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
+- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
+- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
+- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
+- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
+- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
 - [8 Surprisingly Good Books by Celebrities ...](https://celebs.allwomenstalk.com/surprisingly-good-books-by-celebrities/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

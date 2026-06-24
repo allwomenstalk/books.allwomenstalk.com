@@ -3,7 +3,7 @@ title: "10 Manga Titles for a Beginner's Immersion into the Genre ..."
 description: "Japan: in This Corner of the World by Fumiyo Kouno; Cambodia: the Dead Eye and the Deep Blue Sea by Vannal Anan Prum; China: My Beijing: Four Stories of Everyday Wonder by Nie Jun; Japan: a Distant Neighbourhood by Jiro Taniguchi; South Korea: Bad Friends by Anaco; More ..."
 url: "https://books.allwomenstalk.com/manga-titles-for-a-beginners-immersion-into-the-genre/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 10 Manga Titles for a Beginner's Immersion into the Genre ...
@@ -53,14 +53,14 @@ This manga takes on both India’s Mahabharata and other epic stores to present 
 ## Related Posts
 
 - [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
-- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
-- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
-- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
-- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
-- [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
 - [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
+- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
+- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
 - [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)

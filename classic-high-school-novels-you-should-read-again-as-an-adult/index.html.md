@@ -3,7 +3,7 @@ title: "6 Classic Novels from High School Worth Reading as an Adult ..."
 description: "“the Great Gatsby” by F. Scott Fitzgerald; “Romeo and Juliet” by William Shakespeare; “Pride and Prejudice” by Jane Austen; “Brave New World” by Aldous Huxley; “Frankenstein” by Mary Wollstonecraft Shelley; More ..."
 url: "https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 6 Classic Novels from High School Worth Reading as an Adult ...
@@ -58,16 +58,16 @@ Buy at: amazon.com_
 
 ## Related Posts
 
-- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
+- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
+- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
 - [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
 - [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
 - [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
-- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
-- [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
+- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
+- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
 - [9 Brilliant Autobiographies to Read ...](https://allwomenstalk.com/9-brilliant-autobiographies-to-read/)
 - [8 Children's Books to Read as an Adult ...](https://lifestyle.allwomenstalk.com/childrens-books-to-read-as-an-adult/)
 

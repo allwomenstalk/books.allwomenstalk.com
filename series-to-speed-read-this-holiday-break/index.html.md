@@ -3,7 +3,7 @@ title: "7 Series to Speed Read This Holiday Break ..."
 description: "Vampire Academy; Blue Bloods; Delirium; Maze Runner; Hunger Games; More ..."
 url: "https://books.allwomenstalk.com/series-to-speed-read-this-holiday-break/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Series to Speed Read This Holiday Break ...
@@ -57,16 +57,16 @@ Winter break would not be winter break without cuddling up with a good book in f
 
 ## Related Posts
 
-- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
-- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
-- [Love the Divergent Series? then You'll Love These ...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
-- [7 Brilliant Literary Walks to Follow in the Footst...](https://travel.allwomenstalk.com/brilliant-literary-walks-to-follow-in-the-footsteps-of-greatness/)
+- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
 - [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
-- [Want to Be a Writer? Here's How to Publish Your Ow...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
+- [7 Brilliant Literary Walks to Follow in the Footst...](https://travel.allwomenstalk.com/brilliant-literary-walks-to-follow-in-the-footsteps-of-greatness/)
 - [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
 - [7 YA Books That Flew off the Shelves in 2014 ...](https://books.allwomenstalk.com/ya-books-that-flew-off-the-shelves-in/)
-- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
-- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
+- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
+- [Love the Divergent Series? then You'll Love These ...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
+- [Want to Be a Writer? Here's How to Publish Your Ow...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Holiday Must Reads ...](https://allwomenstalk.com/10-holiday-must-reads/)
 

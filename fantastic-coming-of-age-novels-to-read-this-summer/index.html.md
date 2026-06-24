@@ -3,7 +3,7 @@ title: "7 Fantastic Coming of Age Novels to Read This Summer ..."
 description: "The Language of Flowers; Amaryllis in Blueberry; Beside a Burning Sea; The Secret of the Nightingale Palace; The Alchemist; More ..."
 url: "https://books.allwomenstalk.com/fantastic-coming-of-age-novels-to-read-this-summer/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Fantastic Coming of Age Novels to Read This Summer ...
@@ -70,16 +70,16 @@ I hope that some of you check out these excellent reads! Which one intrigues you
 
 ## Related Posts
 
-- [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
-- [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
 - [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
-- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [is the wizard of oz a banned book](https://books.allwomenstalk.com/childrens-books-that-have-been-banned/)
 - [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [books millennials grew up with](https://books.allwomenstalk.com/books-that-have-defined-this-generation/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
+- [charles dickens novels list chronological order](https://books.allwomenstalk.com/reasons-to-read-at-least-one-charles-dickens-novel/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

@@ -3,7 +3,7 @@ title: "10 Books to Read if You Love Jane Austen ..."
 description: "The Jane Austen Project by Kathleen a. Flynn; Seeking Mansfield by Kate Watson; Belgravia by Julian Fellowes; Devil in Spring by Lisa Kleypas; Mr. Rochester by Sarah Shoemaker; More ..."
 url: "https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 10 Books to Read if You Love Jane Austen ...
@@ -80,16 +80,16 @@ Buy here: amazon.com_
 
 ## Related Posts
 
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
-- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
-- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
-- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
 - [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [7 of My Favorite Jane Austen Movies ...](https://lifestyle.allwomenstalk.com/of-my-favorite-jane-austen-movies/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 

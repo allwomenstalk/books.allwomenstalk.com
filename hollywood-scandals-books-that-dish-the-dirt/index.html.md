@@ -3,7 +3,7 @@ title: "Hollywood Scandals: 7 Books That Dish the Dirt ..."
 description: "Scandals of Classic Hollywood by Anne Helen Peterson; Going off Script by Giuliana Rancic; You'll Never Nanny in This Town Again by Suzanne Hansen; There Goes Gravity by Lisa Robinson; The History of Rock 'n' Roll in Ten Songs by Griel Marcus; More ..."
 url: "https://books.allwomenstalk.com/hollywood-scandals-books-that-dish-the-dirt/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Hollywood Scandals: 7 Books That Dish the Dirt ...
@@ -65,16 +65,16 @@ I hesitate to use the word favorite but which Hollywood Scandal gripped you most
 
 ## Related Posts
 
-- [book lover pillow](https://books.allwomenstalk.com/dazzling-decorations-for-book-lovers-to-buy/)
-- [popular books for girls](https://books.allwomenstalk.com/the-best-books-of-every-girl-must-read/)
 - [forbidden romance novels](https://books.allwomenstalk.com/the-most-romantic-books-about-forbidden-love/)
-- [awaken the giant within amazon](https://books.allwomenstalk.com/here-are-books-to-get-from-amazon-if-you-really-want-to-succeed/)
 - [thrillers font](https://books.allwomenstalk.com/psychological-thrillers-that-will-chill-and-thrill-you/)
-- [best books for twenty somethings](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
-- [i love you forever book words](https://books.allwomenstalk.com/these-quotes-from-kids-books-will-make-you-feel-all-the-feels/)
-- [victorian era romance novels](https://books.allwomenstalk.com/most-romantic-lines-from-victorian-literature/)
-- [stephen king multiverse map](https://books.allwomenstalk.com/book-infographics-to-titillate-bibliophiles-of-all-tastes/)
 - [what should i read next website](https://books.allwomenstalk.com/websites-only-real-bookworms-can-appreciate/)
+- [awaken the giant within amazon](https://books.allwomenstalk.com/here-are-books-to-get-from-amazon-if-you-really-want-to-succeed/)
+- [victorian era romance novels](https://books.allwomenstalk.com/most-romantic-lines-from-victorian-literature/)
+- [popular books for girls](https://books.allwomenstalk.com/the-best-books-of-every-girl-must-read/)
+- [stephen king multiverse map](https://books.allwomenstalk.com/book-infographics-to-titillate-bibliophiles-of-all-tastes/)
+- [book lover pillow](https://books.allwomenstalk.com/dazzling-decorations-for-book-lovers-to-buy/)
+- [i love you forever book words](https://books.allwomenstalk.com/these-quotes-from-kids-books-will-make-you-feel-all-the-feels/)
+- [best books for twenty somethings](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
 - [7 Steamiest Sex Scenes in Hollywood ...](https://movies.allwomenstalk.com/steamiest-sex-scenes-in-hollywood/)
 - [7 Most Infamous Celebrity Sex Tapes ...](https://celebs.allwomenstalk.com/most-infamous-celebrity-sex-tapes/)
 

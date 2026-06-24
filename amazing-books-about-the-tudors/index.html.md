@@ -3,7 +3,7 @@ title: "7 Amazing Books about the Tudors ..."
 description: "Legacy (Susan Kay); Wolf Hall; Anne, the Rose of Hever (Maureen Peters); Tudors: a History of England from Henry VIII to Elizabeth I (Peter Ackroyd); In the Footsteps of Anne Boleyn (Sarah Morris & Natalie Grueninger); More ..."
 url: "https://books.allwomenstalk.com/amazing-books-about-the-tudors/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Amazing Books about the Tudors ...
@@ -70,16 +70,16 @@ So why not read some of these exciting books about the Tudors and learn more abo
 
 ## Related Posts
 
+- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
-- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Great Gregory Maguire Novels ...](https://allwomenstalk.com/7-great-gregory-maguire-novels/)
 

@@ -3,7 +3,7 @@ title: "7 Short Story Anthologies You Need on Your Bookshelf ..."
 description: "Trigger Warning by Neil Gaiman; Deathbird Stories by Harlan Ellison; X Files: Trust No One by Various Authors; Everything’s Evenutal by Stephen King; Stories: All New Tales by Various Authors; More ..."
 url: "https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Short Story Anthologies You Need on Your Bookshelf ...
@@ -71,15 +71,15 @@ Novels aren't the only thing worth reading in your spare time. There are plenty 
 ## Related Posts
 
 - [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
 - [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
 - [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

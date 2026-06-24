@@ -3,7 +3,7 @@ title: "7 Christmas Books to Read with Your Kids ..."
 description: "The Elf on the Shelf (adapted); Rudolph the Red Nosed Reindeer (adapted); Dream Snow by Eric Carle; How the Grinch Stole Christmas by Dr. Seuss; Snowmen at Christmas by Caralyn and Mark Buehner; More ..."
 url: "https://books.allwomenstalk.com/christmas-books-to-read-with-your-kids/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Christmas Books to Read with Your Kids ...
@@ -50,16 +50,16 @@ What’s your favorite Christmas book of all time? Please share any others that 
 
 ## Related Posts
 
-- [7 YA Books That Flew off the Shelves in 2014 ...](https://books.allwomenstalk.com/ya-books-that-flew-off-the-shelves-in/)
+- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
+- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
+- [loreal paris riche le smoky timeless blue](https://books.allwomenstalk.com/series-to-speed-read-this-holiday-break/)
+- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
 - [Crack Open a Thrilling Post-Apocalyptic Novel over...](https://books.allwomenstalk.com/thrilling-post-apocalyptic-novels-to-read-over-the-winter-break/)
 - [7 Brilliant Literary Walks to Follow in the Footst...](https://travel.allwomenstalk.com/brilliant-literary-walks-to-follow-in-the-footsteps-of-greatness/)
 - [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
-- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
-- [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
+- [7 YA Books That Flew off the Shelves in 2014 ...](https://books.allwomenstalk.com/ya-books-that-flew-off-the-shelves-in/)
 - [7 Best Books to Help You Master the Art of Happine...](https://books.allwomenstalk.com/best-books-to-help-you-master-the-art-of-happiness/)
-- [loreal paris riche le smoky timeless blue](https://books.allwomenstalk.com/series-to-speed-read-this-holiday-break/)
-- [7 Thrilling Novels Gone Girl Fans Will Adore ...](https://books.allwomenstalk.com/thrilling-novels-gone-girl-fans-will-adore/)
-- [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
+- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

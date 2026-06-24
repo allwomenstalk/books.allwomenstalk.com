@@ -3,7 +3,7 @@ title: "The 7 Best Books on the Psychology of Love ..."
 description: "Why We Love - Helen Fisher; The New Psychology of Love - Robert J. Sternberg, Karin Sternberg; Falling in Love: Why We Choose the Lovers We Choose - Ayala Malach Pines; A General Theory of Love - Thomas Lewis, Fari Amini, Richard Lannon; Getting the Love You Want - Harville Hendrix; More ..."
 url: "https://books.allwomenstalk.com/the-best-books-on-the-psychology-of-love/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # The 7 Best Books on the Psychology of Love ...
@@ -60,15 +60,15 @@ psychcentral.com_
 ## Related Posts
 
 - [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [books like almost famous](https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/)
-- [best classic french authors](https://books.allwomenstalk.com/classic-french-novels-that-are-worth-the-read/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
 - [best books to change life](https://books.allwomenstalk.com/psychology-books-thatll-change-your-life-completely/)
+- [must read intellectual books](https://books.allwomenstalk.com/books-meant-for-intellectual-women/)
+- [best classic french authors](https://books.allwomenstalk.com/classic-french-novels-that-are-worth-the-read/)
 - [classic books every woman should read](https://books.allwomenstalk.com/classic-books-every-girl-must-read-at-least-once/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

@@ -3,7 +3,7 @@ title: "7 Tom Sharpe Novels That Will Put a Smile on Your Face ..."
 description: "Porterhouse Blue; Blott on the Landscape; Riotous Assembly; Indecent Exposure; Wilt; More ..."
 url: "https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Tom Sharpe Novels That Will Put a Smile on Your Face ...
@@ -70,16 +70,16 @@ If you’re looking for a new author to try, please give Tom Sharpe a go. He mig
 
 ## Related Posts
 
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
+- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
 - [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
-- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
-- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

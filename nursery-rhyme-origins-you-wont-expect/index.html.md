@@ -3,7 +3,7 @@ title: "7 Nursery Rhyme Origins You Won't Expect ..."
 description: "Goosey Goosey Gander; Mary Mary Quite Contrary; Rock-a-Bye Baby; Little Miss Muffet; Three Blind Mice; More ..."
 url: "https://books.allwomenstalk.com/nursery-rhyme-origins-you-wont-expect/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Nursery Rhyme Origins You Won't Expect ...
@@ -42,15 +42,15 @@ Nursery rhymes have many origins you don’t expect, although there are many rum
 
 ## Related Posts
 
-- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
-- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
-- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
+- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
 - [what does cuteness overload mean as an insult](https://inspiration.allwomenstalk.com/cool-foreign-words-without-an-english-translation/)
 - [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
-- [six-word stories for students](https://books.allwomenstalk.com/six-word-stories-that-are-incredibly-powerful/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
+- [funny notes to leave coworkers](https://funny.allwomenstalk.com/hysterically-funny-office-notes/)
+- [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
+- [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
 - [comedy ted talks](https://funny.allwomenstalk.com/funny-ted-talks-thatll-make-you-laugh-in-no-time/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [7 Weirdest Urban Legends ...](https://allwomenstalk.com/7-urban-legends/)

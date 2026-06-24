@@ -3,7 +3,7 @@ title: "7 James Patterson Novels to Add to Your Book List ..."
 description: "Private Series; Zoo; The Postcard Killers; Guilty Wives; Sail; More ..."
 url: "https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 James Patterson Novels to Add to Your Book List ...
@@ -57,15 +57,15 @@ What’s your favorite James Patterson book? Will you add any of these to your l
 ## Related Posts
 
 - [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
-- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
+- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
 - [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

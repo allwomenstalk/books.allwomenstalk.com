@@ -3,7 +3,7 @@ title: "Mystery Books to Help Engage Your Inner Detective ..."
 description: "True Confessions by John Gregory Dunne; Gone Girl by Gillian Flynn; The Hound of the Baskervilles by Sir Conan Doyle; The Big Sleep by Raymond Chandler; The Sweetness at the Bottom of the Pie by Alan Bradley; More ..."
 url: "https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/"
 category: "books"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Mystery Books to Help Engage Your Inner Detective ...
@@ -84,16 +84,16 @@ Do you love mystery books? Which ones would you recommend?
 
 ## Related Posts
 
-- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
 - [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
-- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
 - [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 - [21 Absolutely Amazing Books to Read in Your 20s .....](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 
