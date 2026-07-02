@@ -3,7 +3,7 @@ title: "7 Enjoyable Children's Books by Eric Carle ..."
 description: "A Very Hungry Caterpillar; Rooster's off to See the World; Papa, Please Get the Moon for Me; Pancakes! Pancakes!; A House for Hermit Crab; More ..."
 url: "https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Enjoyable Children's Books by Eric Carle ...
@@ -63,16 +63,16 @@ What other books by Eric Carle do you like? Do you like other authors of childre
 
 ## Related Posts
 
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
 - [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
-- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
 - [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
-- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 

@@ -3,7 +3,7 @@ title: "7 Famous Book Characters That Inspire Me Every Day ..."
 description: "Elizabeth Bennet (Pride and Prejudice – Jane Austen); Scarlett O’Hara (Gone with the Wind – Margaret Mitchell); Sherlock Holmes (the Complete Sherlock Holmes Collection – Sir Arthur Conan Doyle); Jane Eyre (Jane Eyre – Charlotte Bronte); Anne Elliot (Persuasion – Jane Austen); More ..."
 url: "https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Famous Book Characters That Inspire Me Every Day ...
@@ -69,14 +69,14 @@ So, there you go, this is my list of 7 famous book characters that really inspir
 
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
 - [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
-- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
-- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
 - [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
+- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
 - [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
+- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books I Would like to Read ...](https://allwomenstalk.com/7-books-i-would-like-to-read/)
 

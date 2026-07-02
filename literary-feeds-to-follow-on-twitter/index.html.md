@@ -3,7 +3,7 @@ title: "9 Literary Feeds You Need to Follow on Twitter ..."
 description: "@MaudNewton; @Litchat; @guardianbooks; @Disneywords; @Electriclit; More ..."
 url: "https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 9 Literary Feeds You Need to Follow on Twitter ...
@@ -50,16 +50,16 @@ Have you got some favorite Twitter feeds for book lovers to share?
 
 ## Related Posts
 
-- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
-- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
+- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
 - [5 Gastro-Terrific Posts to BlogStalk...](https://allwomenstalk.com/5-gastro-terrific-posts-to-blogstalk/)
 - [17 Best Lifestyle Blogs ...](https://allwomenstalk.com/7-best-lifestyle-blogs/)
 

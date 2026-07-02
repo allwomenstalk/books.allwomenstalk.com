@@ -3,7 +3,7 @@ title: "7 Novels That'll Make You Cry Harder than the Fault in Our Stars ..."
 description: "My Sister's Keeper by Jodi Picoult; Forbidden by Tabitha Suzuma; Tuesdays with Morrie by Mitch Albom; Before I Fall by Lauren Oliver; Wonder by R.J. Palacio; More ..."
 url: "https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Novels That'll Make You Cry Harder than the Fault in Our Stars ...
@@ -56,16 +56,16 @@ If you're in the mood for a good cry, pick up one of these books and start readi
 
 ## Related Posts
 
-- [books like fairy tale stephen king](https://books.allwomenstalk.com/love-stephen-king-read-these-similar-novels/)
-- [best free books in kindle](https://books.allwomenstalk.com/the-best-free-mystery-books-on-kindle/)
-- [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
-- [from the notebooks of a middle school princess boo...](https://books.allwomenstalk.com/these-books-will-remind-you-of-your-younger-years/)
 - [tell me what book to read](https://books.allwomenstalk.com/websites-thatll-tell-you-what-book-to-read-next/)
+- [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
+- [books like fairy tale stephen king](https://books.allwomenstalk.com/love-stephen-king-read-these-similar-novels/)
 - [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
+- [swamplandia controversy](https://books.allwomenstalk.com/essentials-for-your-summer-reading-list/)
 - [what is fan stories website](https://books.allwomenstalk.com/websites-thatll-teach-you-how-to-write-fan-fiction/)
 - [steam punk novels](https://books.allwomenstalk.com/steampunk-novels-thatll-make-you-crazy-about-the-genre/)
+- [from the notebooks of a middle school princess boo...](https://books.allwomenstalk.com/these-books-will-remind-you-of-your-younger-years/)
 - [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
-- [swamplandia controversy](https://books.allwomenstalk.com/essentials-for-your-summer-reading-list/)
+- [best free books in kindle](https://books.allwomenstalk.com/the-best-free-mystery-books-on-kindle/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

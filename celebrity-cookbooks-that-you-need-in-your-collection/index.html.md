@@ -3,7 +3,7 @@ title: "11 Celebrity Cookbooks That You Need in Your Collection ..."
 description: "‘Kitchen Revelry: Fun, Fearless and Festive Ideas to Inspire You to Take a Bite out of Life’ by Ali Larter; 'I like You: Hospitality under the Influence' by Amy Sedaris; ‘Eva's Kitchen: Cooking with Love for Family and Friends’ by Eva Longoria; ‘the Kind Diet’ by Alicia Silverstone; ‘It's All Good: Delicious, Easy Recipes That Will Make You Look Good and Feel Great’ by Gwyneth Paltrow; More ..."
 url: "https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 11 Celebrity Cookbooks That You Need in Your Collection ...
@@ -80,16 +80,16 @@ There are lots of cookbooks by celebrities but I think these are the brightest o
 
 ## Related Posts
 
-- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
+- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
+- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
 - [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
 - [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
-- [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
-- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
 - [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
-- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
 - [8 Weight Loss Cookbooks for Those Who Love to Cook...](https://weightloss.allwomenstalk.com/weight-loss-cookbooks-for-those-who-love-to-cook-yet-want-to-lose-weight-too/)
 - [7 Cupcake Cookbooks ...](https://thecrepescafe.com/7-cupcake-cookbooks/)
 

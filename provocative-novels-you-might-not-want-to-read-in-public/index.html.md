@@ -3,7 +3,7 @@ title: "7 Provocative Novels You Might Not Want to Read in Public ..."
 description: "Peyton Place by Grace Metalious; Fifty Shades of Grey by E. L. James; Lolita by Vladimir Nabokov; Lady Chatterly's Lover by D. H. Lawrence; Wifey by Judy Blume; More ..."
 url: "https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Provocative Novels You Might Not Want to Read in Public ...
@@ -56,14 +56,14 @@ Some of these really shouldn't qualify as provocative novels any longer, but the
 
 ## Related Posts
 
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
-- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 - [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
 - [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
+- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

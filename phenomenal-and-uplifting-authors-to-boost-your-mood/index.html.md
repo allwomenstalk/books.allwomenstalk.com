@@ -3,7 +3,7 @@ title: "7 Phenomenal and Uplifting Authors to Boost Your Mood ..."
 description: "Shel Silverstein-Where the Sidewalk Ends; Maya Angelou- I Know Why the Caged Bird Sings; Don Piper- 90 Minutes in Heaven; The Dalai Lama- the Art of Happiness; Menna Van Praag- the House at the End of Hope Street; More ..."
 url: "https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Phenomenal and Uplifting Authors to Boost Your Mood ...
@@ -70,16 +70,16 @@ There are so many wonderful authors with whom to spend an afternoon, or even a S
 
 ## Related Posts
 
-- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
 - [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
-- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
-- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
-- [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
-- [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
-- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
 - [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
+- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
+- [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
+- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
+- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
+- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
 - [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
 - [7 Songs to Inspire a Happy Mood ...](https://allwomenstalk.com/7-songs-to-inspire-a-happy-mood/)
 - [7 Great Reads when You Are Feeling Blue ...](https://allwomenstalk.com/great-reads-when-you-are-feeling-blue/)
 

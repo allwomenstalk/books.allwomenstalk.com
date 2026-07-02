@@ -3,7 +3,7 @@ title: "10 of the World's Most Expensive Books Ever ..."
 description: "Codex Leicester ($30,800,000); Magna Carta ($21,000,000); St Cuthbert Gospel ($14,300,000); Bay Psalm Book ($14,200,000); Rothschild Prayerbook ($13,400,000); More ..."
 url: "https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 10 of the World's Most Expensive Books Ever ...
@@ -74,16 +74,16 @@ Are you amazed by the prices these books achieved?
 
 ## Related Posts
 
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
+- [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
+- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
+- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
 - [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
 - [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
-- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
-- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
 - [10 Best Luxury Hotels in the World ...](https://travel.allwomenstalk.com/best-luxury-hotels-in-the-world/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 

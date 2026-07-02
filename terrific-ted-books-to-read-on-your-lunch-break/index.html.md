@@ -3,7 +3,7 @@ title: "7 Terrific TED Books to Read on Your Lunch Break ..."
 description: "Would You Stay? by Michael Forster; Weekday Vegetarian by Graham Hill and Alex Estes; Beware Dangerism! by Gever Tulley; Things Don't Have to Be Complicated by Larry Smith; Cheating the Impossible by Philippe Petit; More ..."
 url: "https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/"
 category: "books"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Terrific TED Books to Read on Your Lunch Break ...
@@ -56,16 +56,16 @@ These are some of the best TED books I have read so far. Do you have any other r
 
 ## Related Posts
 
-- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
-- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
 - [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
-- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
-- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
 - [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
+- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
 - [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
+- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
+- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
+- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 
