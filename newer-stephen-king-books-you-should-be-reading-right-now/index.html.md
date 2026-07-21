@@ -3,7 +3,7 @@ title: "7 Newer Stephen King Books You Should Be Reading Right Now ..."
 description: "Under the Dome; Cell; Duma Key; Doctor Sleep; Lisey's Story; More ..."
 url: "https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/"
 category: "books"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Newer Stephen King Books You Should Be Reading Right Now ...
@@ -57,15 +57,15 @@ Although Pet Sematary is my very favorite Stephen King book, many of these rank 
 ## Related Posts
 
 - [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
-- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
-- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
 - [books like mitford series](https://books.allwomenstalk.com/fictional-novels-by-nancy-mitford-that-are-extremely-entertaining/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [top travel books for kids](https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/)
 - [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
 - [cookbooks by celebrities](https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/)
-- [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
+- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
 - [7 Top Stephen King Movies ...](https://allwomenstalk.com/7-top-stephen-king-movies/)
 - [7 Scariest Stephen King Novels ...](https://allwomenstalk.com/7-scariest-stephen-king-novels/)
 
