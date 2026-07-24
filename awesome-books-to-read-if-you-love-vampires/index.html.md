@@ -3,7 +3,7 @@ title: "7 Awesome Books to Read if You Love Vampires ..."
 description: "Dracula by Bram Stoker; Interview with the Vampire by Anne Rice; Twilight Series by Stephenie Meyer; Dead until Dark by Charlaine Harris; Abraham Lincoln: Vampire Hunter by Seth Grahame-Smith; More ..."
 url: "https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/"
 category: "books"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 Awesome Books to Read if You Love Vampires ...
@@ -68,15 +68,15 @@ I hope if you haven't considered reading vampire books yet, you'll start with so
 
 ## Related Posts
 
-- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
 - [anthony trollope novel](https://books.allwomenstalk.com/novels-written-by-anthony-trollope-that-will-take-you-back-in-time/)
-- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
-- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
-- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
 - [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
-- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [interesting teen books](https://books.allwomenstalk.com/interesting-young-adult-novels-to-read/)
 - [day a novel](https://books.allwomenstalk.com/novels-with-stories-that-take-place-in-one-day/)
+- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
+- [bookstore aisle](https://books.allwomenstalk.com/aisles-of-the-bookstore-to-peruse/)
+- [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
+- [tressie dolls](https://books.allwomenstalk.com/of-my-favorite-enid-blyton-stories-and-series/)
+- [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
 - [tuesdays with maurie](https://books.allwomenstalk.com/phenomenal-and-uplifting-authors-to-boost-your-mood/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

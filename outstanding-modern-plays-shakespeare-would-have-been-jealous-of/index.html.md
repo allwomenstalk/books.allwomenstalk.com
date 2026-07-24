@@ -3,7 +3,7 @@ title: "9 Modern Plays Making Shakespeare Wish He Wrote Them ..."
 description: "Equus by Peter Shaffer; Arcadia; Endgame by Samuel Beckett; A View from the Bridge; Doubt: a Parable; More ..."
 url: "https://books.allwomenstalk.com/outstanding-modern-plays-shakespeare-would-have-been-jealous-of/"
 category: "books"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 9 Modern Plays Making Shakespeare Wish He Wrote Them ...
@@ -58,14 +58,14 @@ _features.jerseyarts.com_
 
 ## Related Posts
 
-- [color riche stylo amber rush](https://lifestyle.allwomenstalk.com/this-video-could-save-your-life/)
-- [paris color riche shadow silver couture](https://lifestyle.allwomenstalk.com/learning-technologies-no-one-could-have-predicted/)
-- [frosty palace grease menu](https://movies.allwomenstalk.com/on-screen-restaurants-we-want-to-dine-at/)
-- [allwish](https://movies.allwomenstalk.com/tv-shows-we-all-wish-would-be-brought-back/)
-- [! We Found Waldo ...](https://funny.allwomenstalk.com/look-we-found-waldo/)
-- [You've Never Seen Friends like This before ...](https://movies.allwomenstalk.com/youve-never-seen-friends-like-this-before/)
 - [The Winner is ...](https://lifestyle.allwomenstalk.com/winner-of-content-is/)
+- [frosty palace grease menu](https://movies.allwomenstalk.com/on-screen-restaurants-we-want-to-dine-at/)
 - [Try to Watch These 17 YouTube Videos without Laugh...](https://funny.allwomenstalk.com/try-to-watch-these-youtube-videos-without-laughing/)
+- [paris color riche shadow silver couture](https://lifestyle.allwomenstalk.com/learning-technologies-no-one-could-have-predicted/)
+- [You've Never Seen Friends like This before ...](https://movies.allwomenstalk.com/youve-never-seen-friends-like-this-before/)
+- [! We Found Waldo ...](https://funny.allwomenstalk.com/look-we-found-waldo/)
+- [color riche stylo amber rush](https://lifestyle.allwomenstalk.com/this-video-could-save-your-life/)
+- [allwish](https://movies.allwomenstalk.com/tv-shows-we-all-wish-would-be-brought-back/)
 - [Short Story: Intoxicating Boys ...](https://love.allwomenstalk.com/short-story-intoxicating-boys/)
 - [This Week's Challenge: #BestBondMoment! ...](https://lifestyle.allwomenstalk.com/this-week-challenge-bestbondmoment/)
 - [9 Books That Did Not Make Great Movies ...](https://movies.allwomenstalk.com/9-books-that-did-not-make-great-movies/)
