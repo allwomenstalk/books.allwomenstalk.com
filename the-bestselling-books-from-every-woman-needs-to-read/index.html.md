@@ -212,16 +212,16 @@ What's the best book you've read in 2015? I highly suggest reading Gone Girl, Re
 
 ## Related Posts
 
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
 - [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
-- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
-- [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
 - [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
+- [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
+- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [8 Fun Books for Single Girls ...](https://allwomenstalk.com/fun-books-for-single-girls/)
 

@@ -223,16 +223,16 @@ Every book-lover ought to express her love for literature in any way possible! W
 
 ## Related Posts
 
-- [heart shape craft](https://lifestyle.allwomenstalk.com/heart-shaped-things-that-raise-a-smile/)
-- [stained glass windows images](https://lifestyle.allwomenstalk.com/examples-of-gorgeous-stained-glass/)
-- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
-- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
-- [lochers paris](https://fashion.allwomenstalk.com/lochers-proves-your-sense-of-humor-is-the-most-stylish-accessory/)
-- [how are glass paperweights made](https://lifestyle.allwomenstalk.com/photos-that-make-a-gallery-of-gorgeous-glass-paperweights/)
-- [best indie jewelry brands](https://jewelry.allwomenstalk.com/amazing-indie-jewelry-designers-to-check-out-now/)
 - [pawn stars](https://jewelry.allwomenstalk.com/stunningly-beautiful-imperial-faberge-eggs/)
+- [types of art glass](https://lifestyle.allwomenstalk.com/gorgeous-pieces-of-art-glass-to-lust-after/)
+- [how are glass paperweights made](https://lifestyle.allwomenstalk.com/photos-that-make-a-gallery-of-gorgeous-glass-paperweights/)
 - [meaningful mandala tattoo](https://lifestyle.allwomenstalk.com/awesome-mandala-tattoo-placements-you-should-consider/)
 - [cuff bracelet meaning](https://jewelry.allwomenstalk.com/alex-and-ani-bangle-bracelets-and-their-meanings/)
+- [masks with long noses](https://fashion.allwomenstalk.com/different-types-of-venetian-masks-that-are-fabulous-and-impressive/)
+- [heart shape craft](https://lifestyle.allwomenstalk.com/heart-shaped-things-that-raise-a-smile/)
+- [stained glass windows images](https://lifestyle.allwomenstalk.com/examples-of-gorgeous-stained-glass/)
+- [best indie jewelry brands](https://jewelry.allwomenstalk.com/amazing-indie-jewelry-designers-to-check-out-now/)
+- [lochers paris](https://fashion.allwomenstalk.com/lochers-proves-your-sense-of-humor-is-the-most-stylish-accessory/)
 - [10 Lovely Lilac Accessories ...](https://fashion.allwomenstalk.com/10-lovely-lilac-accessories/)
 - [7 Hot Tory Burch Accessories ...](https://fashion.allwomenstalk.com/7-hot-tory-burch-accessories/)
 

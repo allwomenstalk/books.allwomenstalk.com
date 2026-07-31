@@ -74,16 +74,16 @@ The 50s are an exciting time to read about, which is why these books are hard to
 
 ## Related Posts
 
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Must Read Literary Classics ...](https://allwomenstalk.com/7-must-read-literary-classics/)
 

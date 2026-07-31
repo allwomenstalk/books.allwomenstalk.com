@@ -56,15 +56,15 @@ There are a lot of great authors out there, it's hard to choose just seven to wr
 
 ## Related Posts
 
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [literary festivals](https://books.allwomenstalk.com/literary-festivals-for-book-lovers-everywhere/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
-- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
 - [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [best place for audiobooks free](https://books.allwomenstalk.com/websites-for-free-audio-books/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
+- [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)

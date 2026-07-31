@@ -68,14 +68,14 @@ Each of these books have helped expand my view on love and friendship, showing t
 
 ## Related Posts
 
-- [how do i show someone i love them](https://love.allwomenstalk.com/ways-to-show-someone-you-love-them-without-words/)
-- [kiss love gif](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
-- [old time love letters](https://love.allwomenstalk.com/amazing-love-letters-from-the-past-century/)
 - [love experience](https://love.allwomenstalk.com/types-of-love-you-may-experience-in-life/)
-- [how to win the i love you more game](https://love.allwomenstalk.com/ways-he-shows-you-he-loves-you-without-saying-it/)
-- [what to wear on a romantic weekend getaway](https://love.allwomenstalk.com/things-you-need-to-bring-along-for-a-romantic-weekend-away/)
 - [similar to love](https://love.allwomenstalk.com/romantic-words-to-use-instead-of-love/)
 - [can animal dream](https://love.allwomenstalk.com/different-things-that-a-kiss-could-mean/)
+- [kiss love gif](https://love.allwomenstalk.com/best-times-to-be-kissed-by-your-partner/)
+- [old time love letters](https://love.allwomenstalk.com/amazing-love-letters-from-the-past-century/)
+- [how to win the i love you more game](https://love.allwomenstalk.com/ways-he-shows-you-he-loves-you-without-saying-it/)
+- [what to wear on a romantic weekend getaway](https://love.allwomenstalk.com/things-you-need-to-bring-along-for-a-romantic-weekend-away/)
+- [how do i show someone i love them](https://love.allwomenstalk.com/ways-to-show-someone-you-love-them-without-words/)
 - [old fashion dates](https://love.allwomenstalk.com/old-fashioned-date-ideas-to-bring-back/)
 - [latin love saying](https://love.allwomenstalk.com/romantic-latin-phrases-everyone-should-learn/)
 - [9 of the Most Romantic Movies ...](https://movies.allwomenstalk.com/9-of-the-most-romantic-movies/)

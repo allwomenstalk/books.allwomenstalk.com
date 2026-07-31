@@ -86,15 +86,15 @@ There are so many classic novels, and I like to think that most of them have val
 
 ## Related Posts
 
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
+- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
 - [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
 - [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
-- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
-- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
 - [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
 - [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
 - [9 Brilliant Autobiographies to Read ...](https://allwomenstalk.com/9-brilliant-autobiographies-to-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

@@ -42,16 +42,16 @@ There are more than 70 of Aesop’s fables and despite their antiquity, their ta
 
 ## Related Posts
 
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
-- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
 - [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
 - [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
-- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
+- [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
+- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [7 Fairytales That Your Daughter Should Know ...](https://parenting.allwomenstalk.com/7-fairytales-that-your-daughter-should-know/)
 - [Top 7 Things to Teach Your Children ...](https://parenting.allwomenstalk.com/top-7-things-to-teach-your-children/)
 

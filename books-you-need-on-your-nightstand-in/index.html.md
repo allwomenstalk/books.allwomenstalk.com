@@ -56,15 +56,15 @@ These are 7 books you need on your nightstand in 2015. Now it’s your turn. Wha
 
 ## Related Posts
 
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
 - [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books I Would like to Read ...](https://allwomenstalk.com/7-books-i-would-like-to-read/)

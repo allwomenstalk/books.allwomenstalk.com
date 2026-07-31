@@ -68,16 +68,16 @@ Trust, these are not the only characters I love from John Irving's novels, but t
 
 ## Related Posts
 
-- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
-- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
-- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
-- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
-- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
-- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
-- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
+- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
+- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
+- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
+- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
+- [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
 - [8 Great Victorian Novelists ...](https://lifestyle.allwomenstalk.com/great-victorian-novelists/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

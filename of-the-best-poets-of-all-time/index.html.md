@@ -42,16 +42,16 @@ Who’s your favorite poet?
 
 ## Related Posts
 
-- [disney world date ideas](https://love.allwomenstalk.com/disney-inspired-dates-to-go-on/)
-- [tragic love stories in history](https://love.allwomenstalk.com/amazing-love-stories-throughout-folklore-and-history/)
-- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
-- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
-- [thetis sea nymph](https://lifestyle.allwomenstalk.com/gorgeous-illustrations-of-greek-myths/)
-- [old natural disasters](https://lifestyle.allwomenstalk.com/natural-disasters-that-shook-the-ancient-world/)
-- [cards against humanity woke](https://funny.allwomenstalk.com/times-cards-against-humanity-was-truly-horrible/)
-- [now-fallen](https://celebs.allwomenstalk.com/sports-cheats-once-heroes-now-fallen-idols/)
 - [state laws that should exist](https://funny.allwomenstalk.com/us-laws-that-dont-make-sense/)
 - [prodijig got to dance](https://music.allwomenstalk.com/judges-thought-they-were-a-joke-but-when-they-dance/)
+- [now-fallen](https://celebs.allwomenstalk.com/sports-cheats-once-heroes-now-fallen-idols/)
+- [old natural disasters](https://lifestyle.allwomenstalk.com/natural-disasters-that-shook-the-ancient-world/)
+- [thetis sea nymph](https://lifestyle.allwomenstalk.com/gorgeous-illustrations-of-greek-myths/)
+- [cards against humanity woke](https://funny.allwomenstalk.com/times-cards-against-humanity-was-truly-horrible/)
+- [tragic love stories in history](https://love.allwomenstalk.com/amazing-love-stories-throughout-folklore-and-history/)
+- [terence tao vs albert einstein](https://lifestyle.allwomenstalk.com/most-remarkable-intelligent-people-who-ever-lived/)
+- [riche le smoky and brilliant](https://inspiration.allwomenstalk.com/brilliant-controversial-adverts-that-everyone-should-see/)
+- [disney world date ideas](https://love.allwomenstalk.com/disney-inspired-dates-to-go-on/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 of My Favorite Fictional Characters ...](https://allwomenstalk.com/7-of-my-favorite-fictional-characters/)
 

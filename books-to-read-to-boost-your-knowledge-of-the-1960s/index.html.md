@@ -56,13 +56,13 @@ If you are interested in learning more about the history of the 1960s, these are
 
 ## Related Posts
 
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
 - [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
 - [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
 - [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
 - [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)

@@ -42,16 +42,16 @@ The Fault in Our Stars has really opened up my eyes on a lot of things. While it
 
 ## Related Posts
 
-- [in every disaster there is an opportunity](https://inspiration.allwomenstalk.com/motivational-quotes-from-john-d-rockefeller/)
-- [what others think of you quotes?](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
-- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
-- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
-- [what is thomas jefferson's famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
-- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
-- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
-- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
 - [quotes to lift your spirits](https://inspiration.allwomenstalk.com/quotes-from-friends-that-will-lift-your-spirits/)
+- [parks and rec pick up lines](https://funny.allwomenstalk.com/hilarious-leslie-knope-quotes-thatll-make-you-love-her/)
+- [in every disaster there is an opportunity](https://inspiration.allwomenstalk.com/motivational-quotes-from-john-d-rockefeller/)
 - [riche le stylo shadow garnet](https://inspiration.allwomenstalk.com/motivational-quotes-on-success-that-will-make-your-day/)
+- [zelda love quotes](https://books.allwomenstalk.com/beautiful-quotes-from-zelda-fitzgeralds-writings/)
+- [motivational quote for tough times](https://inspiration.allwomenstalk.com/inspiring-quotes-that-will-help-you-get-through-tough-times/)
+- [what others think of you quotes?](https://inspiration.allwomenstalk.com/inspiring-quotes-from-eleanor-roosevelt/)
+- [what is thomas jefferson's famous quote](https://inspiration.allwomenstalk.com/quotes-from-thomas-jefferson-that-we-can-still-learn-from/)
+- [socrates quotes on youth](https://inspiration.allwomenstalk.com/wise-words-from-socrates-that-ring-true-even-today/)
+- [princess diana quotes kindness](https://inspiration.allwomenstalk.com/inspiring-and-uplifting-quotes-by-princess-diana/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [5 Good Twilight Quotes ...](https://twilight.allwomenstalk.com/5-good-twilight-quotes/)
 

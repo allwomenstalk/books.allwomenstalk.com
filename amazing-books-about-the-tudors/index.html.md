@@ -70,16 +70,16 @@ So why not read some of these exciting books about the Tudors and learn more abo
 
 ## Related Posts
 
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
-- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Great Gregory Maguire Novels ...](https://allwomenstalk.com/7-great-gregory-maguire-novels/)
 

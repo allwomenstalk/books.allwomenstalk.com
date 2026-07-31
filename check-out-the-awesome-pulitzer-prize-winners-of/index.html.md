@@ -64,16 +64,16 @@ Fascinating list isn’t it? Have you read any of these?
 
 ## Related Posts
 
-- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
-- [MTV Movie Awards - at Least the Opening Was Funny](https://allwomenstalk.com/mtv-movie-awards-at-least-the-opening-was-funny/)
-- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
-- [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
-- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
-- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
-- [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
 - [Jeff Foxworthy Hosts Tonight's CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
+- [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
+- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [Geri Halliwell's Gold Clutch Style at the Greatest...](https://allwomenstalk.com/geri-halliwells-gold-clutch-style-at-the-greatest-britons-awards-red-carpet/)
+- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
+- [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
+- [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
+- [MTV Movie Awards - at Least the Opening Was Funny](https://allwomenstalk.com/mtv-movie-awards-at-least-the-opening-was-funny/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
 - [27 Photos of 21st Annual GLAAD Media Awards ...](https://celebs.allwomenstalk.com/21st-annual-glaad-media-awards/)
 - [7 Inspiring Celebrities of 2011 ...](https://celebs.allwomenstalk.com/inspiring-celebrities-of/)
 

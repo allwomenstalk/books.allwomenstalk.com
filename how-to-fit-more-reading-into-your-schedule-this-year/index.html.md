@@ -56,16 +56,16 @@ Reading will not only make you happier, but it'll keep your mind healthy. That's
 
 ## Related Posts
 
-- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
-- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
 - [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
 - [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
+- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
 - [8 Ways to Promote Early Reading ...](https://parenting.allwomenstalk.com/8-ways-to-promote-early-reading/)
 - [12 Ways to Make More Free Time during the Day ...](https://allwomenstalk.com/12-ways-to-make-more-free-time-during-the-day/)
 

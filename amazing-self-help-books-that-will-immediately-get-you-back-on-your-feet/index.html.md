@@ -69,16 +69,16 @@ So, there you go, 7 of the most amazing self-help books I’ve read that have re
 
 ## Related Posts
 
-- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
-- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
-- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
-- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
 - [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
-- [how to improve as a person](https://inspiration.allwomenstalk.com/best-ways-to-improve-yourself-as-a-person/)
-- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
-- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
 - [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
+- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
 - [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
+- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
+- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
+- [how to improve as a person](https://inspiration.allwomenstalk.com/best-ways-to-improve-yourself-as-a-person/)
+- [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
+- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
+- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
 - [Top 10 Books on Self-Improvement ...](https://allwomenstalk.com/top-10-books-on-self-improvement/)
 - [7 Inspiring Books You Need to Read to Get to Know ...](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 

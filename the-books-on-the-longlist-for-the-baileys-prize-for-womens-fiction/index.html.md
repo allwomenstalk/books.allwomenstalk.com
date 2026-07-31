@@ -176,16 +176,16 @@ Congratulations to all the longlist authors and good luck!
 
 ## Related Posts
 
-- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
-- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
-- [lee hyeon seo memoir](https://books.allwomenstalk.com/autobiography-lovers-will-love-to-read-these-memoirs/)
+- [books like slaughterhouse five](https://books.allwomenstalk.com/books-you-wont-find-on-a-syllabus-that-every-teenager-should-read/)
 - [Girls Who Love Short Stories Can Lose Themselves i...](https://books.allwomenstalk.com/girls-who-love-short-stories-can-lose-themselves-in-these-literary-mags/)
-- [uplifting books for women](https://books.allwomenstalk.com/uplifting-books-for-women-who-need-to-turbo-charge-their-mood/)
 - [best non fiction books to read on vacation](https://books.allwomenstalk.com/ultimate-non-fiction-books-to-read-before-summer-is-out/)
 - [books that are being turned into movies](https://movies.allwomenstalk.com/remarkable-books-that-are-being-made-into-movies/)
 - [10 Quick and Quirky 🤗 Reads for Women Who Love a ...](https://books.allwomenstalk.com/quick-and-quirky-reads-for-women-who-love-to-laugh/)
+- [10 Summer Reads for Girls Who Love Adventure Stori...](https://books.allwomenstalk.com/summer-reads-for-girls-who-love-adventure/)
 - [Books to Read for Women Curious about Women's Righ...](https://books.allwomenstalk.com/read-these-books-to-learn-more-about-womens-rights/)
-- [books like slaughterhouse five](https://books.allwomenstalk.com/books-you-wont-find-on-a-syllabus-that-every-teenager-should-read/)
+- [11 Great Books to Teach Fierce Feminist Life Lesso...](https://books.allwomenstalk.com/books-with-fierce-feminist-life-lessons/)
+- [uplifting books for women](https://books.allwomenstalk.com/uplifting-books-for-women-who-need-to-turbo-charge-their-mood/)
+- [lee hyeon seo memoir](https://books.allwomenstalk.com/autobiography-lovers-will-love-to-read-these-memoirs/)
 - [A List of the Books in the Twilight Series ...](https://twilight.allwomenstalk.com/a-list-of-the-books-in-the-twilight-series/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

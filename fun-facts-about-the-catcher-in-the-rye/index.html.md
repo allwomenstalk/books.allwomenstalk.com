@@ -42,16 +42,16 @@ This novel is linked to various crimes from John Lennon’s assassination to Ron
 
 ## Related Posts
 
-- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
-- [disney world behind the scenes secrets](https://travel.allwomenstalk.com/behind-the-scenes-things-you-didnt-know-about-disney-world/)
-- [fun facts about coconuts](https://food.allwomenstalk.com/fabulous-facts-about-coconuts-for-coconut-lovers/)
 - [what are some old wives tales](https://lifestyle.allwomenstalk.com/wives-tales-that-are-actually-true/)
-- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
+- [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
 - [alexis bledel dating history](https://celebs.allwomenstalk.com/interesting-fun-facts-about-alexis-bledel-that-you-will-love/)
+- [what are the basic rules of rummy](https://lifestyle.allwomenstalk.com/crazy-rummy-rules-that-you-need-to-know/)
+- [disney world behind the scenes secrets](https://travel.allwomenstalk.com/behind-the-scenes-things-you-didnt-know-about-disney-world/)
+- [facts about the earth](https://travel.allwomenstalk.com/geographical-facts-about-planet-earth/)
 - [facts about the tissue](https://health.allwomenstalk.com/interesting-facts-about-connective-tissue/)
 - [cute facts about elephants](https://lifestyle.allwomenstalk.com/magnificent-facts-about-elephants-that-may-be-new-to-you/)
 - [what are gnomes afraid of](https://lifestyle.allwomenstalk.com/strange-fears-that-actually-exist/)
-- [fun facts about the olympics](https://lifestyle.allwomenstalk.com/fun-facts-about-the-olympics-that-may-surprise-you/)
+- [fun facts about coconuts](https://food.allwomenstalk.com/fabulous-facts-about-coconuts-for-coconut-lovers/)
 - [5 Ghostly Facts ...](https://twilight.allwomenstalk.com/5-ghostly-facts/)
 - [7 Strange Animal Facts ...](https://allwomenstalk.com/7-strangest-animal-facts-you-did-not-know/)
 

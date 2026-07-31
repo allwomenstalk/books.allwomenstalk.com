@@ -64,15 +64,15 @@ How often do you read? What do you enjoy reading the most?
 ## Related Posts
 
 - [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
 - [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
-- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
-- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
-- [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
-- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
 - [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
 - [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
 - [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
+- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
+- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
+- [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
+- [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
 - [5 Reasons People Read Their Horoscope ...](https://twilight.allwomenstalk.com/5-reasons-people-read-their-horoscope/)
 - [Get Caught Reading ...](https://allwomenstalk.com/get-caught-reading/)
 

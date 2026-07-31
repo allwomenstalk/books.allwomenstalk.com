@@ -56,16 +56,16 @@ I will proudly carry my YA novel on my commute tonight, and I encourage you to d
 
 ## Related Posts
 
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
 - [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
-- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [5 Reasons to Read Twilight ...](https://twilight.allwomenstalk.com/5-reasons-to-read-twilight/)
 - [5 Reasons to Read the Short Second Life of Bree Ta...](https://twilight.allwomenstalk.com/5-reasons-to-read-the-short-second-life-of-bree-tanner/)
 

@@ -148,16 +148,16 @@ I’d love to know which are your favorite opening lines. Please share.
 
 ## Related Posts
 
-- [Short Books for Busy People ⏰ Who Want to Read 🤓 ...](https://books.allwomenstalk.com/short-books-for-busy-people/)
 - [Books to Get You in the Mood for Fall ...](https://books.allwomenstalk.com/books-to-get-you-in-the-mood-for-fall/)
-- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
-- [3 Books to Read if You're Thinking 🤔 of Quitting ...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
-- [Exceptional Reasons to Read Margaret Atwood ...](https://books.allwomenstalk.com/reasons-to-read-margaret-atwood/)
+- [Short Books for Busy People ⏰ Who Want to Read 🤓 ...](https://books.allwomenstalk.com/short-books-for-busy-people/)
 - [20 Best Books from 2017 You Won't Be Able to Put d...](https://books.allwomenstalk.com/best-books-of-2017/)
-- [all the light we cannot see madame manec](https://books.allwomenstalk.com/books-to-put-on-your-summer-reading-list/)
-- [best books to read classics](https://books.allwomenstalk.com/reasons-to-read-classic-books/)
 - [loreal paris riche stylo smoky azure](https://books.allwomenstalk.com/beauty-through-the-mist-by-cristen-rogers/)
 - [6 Books about Personal Growth to Read 🤓 in 2018 f...](https://books.allwomenstalk.com/books-about-personal-growth/)
+- [7 Awesome New Books to Read This Month ...](https://books.allwomenstalk.com/new-books-to-read-this-month/)
+- [all the light we cannot see madame manec](https://books.allwomenstalk.com/books-to-put-on-your-summer-reading-list/)
+- [3 Books to Read if You're Thinking 🤔 of Quitting ...](https://books.allwomenstalk.com/books-to-read-if-youre-thinking-of-quitting-work/)
+- [Exceptional Reasons to Read Margaret Atwood ...](https://books.allwomenstalk.com/reasons-to-read-margaret-atwood/)
+- [best books to read classics](https://books.allwomenstalk.com/reasons-to-read-classic-books/)
 - [8 Reasons to Join a Summer Book Club ...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-summer-book-club/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 

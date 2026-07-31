@@ -42,16 +42,16 @@ Jane Austen's work may seem outdated to some now but as you can see, we can stil
 
 ## Related Posts
 
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
-- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
-- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
-- [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
 - [garfield sarcastic quotes](https://funny.allwomenstalk.com/garfield-inspired-quotes-for-when-youre-feeling-lazy/)
 - [colorgenics cube test](https://inspiration.allwomenstalk.com/personality-tests-you-can-take-online/)
-- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
 - [funny points to ponder](https://funny.allwomenstalk.com/hysterical-unanswerable-questions-to-ponder-about-life/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
+- [how to stop the fear of missing out](https://inspiration.allwomenstalk.com/ways-to-fight-fomo-fear-of-missing-out/)
+- [is being vulnerable a good thing](https://inspiration.allwomenstalk.com/surprising-benefits-of-being-vulnerable/)
+- [not worth my energy meaning](https://inspiration.allwomenstalk.com/things-that-are-not-worth-getting-upset-about/)
+- [glisters](https://lifestyle.allwomenstalk.com/things-that-prove-all-that-glisters-is-gold/)
+- [true facts about friendship](https://lifestyle.allwomenstalk.com/friendship-myths-that-arent-true/)
 - [7 Life Lessons You Can Learn from the Great Gatsby...](https://lifestyle.allwomenstalk.com/life-lessons-you-can-learn-from-the-great-gatsby/)
 - [7 Love Lessons We Can Learn from Celebrities ...](https://7fun.net/love-lessons-we-can-learn-from-celebrities/)
 

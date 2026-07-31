@@ -70,15 +70,15 @@ If you love everything about weddings, then you can't forget about the bachelor 
 
 ## Related Posts
 
-- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
-- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
 - [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
 - [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
+- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
 - [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
+- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Great Books about Dating ...](https://love.allwomenstalk.com/great-books-about-dating/)

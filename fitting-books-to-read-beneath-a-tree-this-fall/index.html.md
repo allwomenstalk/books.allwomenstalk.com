@@ -71,15 +71,15 @@ Autumn is the perfect season for catching up on all the reading you've been want
 ## Related Posts
 
 - [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
-- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
 - [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
 - [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
 - [5 Books to Fill That Space in Your Bookshelf...](https://allwomenstalk.com/5-books-to-fill-that-space-in-your-bookshelf/)
 - [7 Cute Fall Hats ...](https://allwomenstalk.com/7-cute-fall-hats/)
 

@@ -49,16 +49,16 @@ _omgfacts.com_
 
 ## Related Posts
 
-- [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
-- [pebble clouds](https://lifestyle.allwomenstalk.com/facts-about-cloud-formations-you-might-not-know-of/)
-- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
-- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
 - [medieval hygiene facts](https://health.allwomenstalk.com/facts-about-hygiene-that-may-surprise-you/)
-- [christmas facts about reindeer](https://lifestyle.allwomenstalk.com/fascinating-facts-about-reindeer/)
-- [bethany mota niece](https://celebs.allwomenstalk.com/interesting-facts-about-bethany-mota/)
-- [what phenomena in the natural world do mythical cr...](https://lifestyle.allwomenstalk.com/possible-scientific-explanations-for-mythical-beings/)
 - [polar bears information and facts](https://lifestyle.allwomenstalk.com/interesting-facts-about-polar-bears/)
+- [interesting facts about the aurora borealis](https://travel.allwomenstalk.com/interesting-facts-about-the-northern-lights/)
+- [the grinch references](https://movies.allwomenstalk.com/funny-facts-about-the-grinch-that-stole-christmas/)
 - [why are spider webs a popular christmas decoration...](https://lifestyle.allwomenstalk.com/interesting-facts-about-christmas-that-you-didnt-know/)
+- [bethany mota niece](https://celebs.allwomenstalk.com/interesting-facts-about-bethany-mota/)
+- [pebble clouds](https://lifestyle.allwomenstalk.com/facts-about-cloud-formations-you-might-not-know-of/)
+- [what phenomena in the natural world do mythical cr...](https://lifestyle.allwomenstalk.com/possible-scientific-explanations-for-mythical-beings/)
+- [christmas facts about reindeer](https://lifestyle.allwomenstalk.com/fascinating-facts-about-reindeer/)
+- [american horror story facts](https://movies.allwomenstalk.com/facts-about-american-horror-story-you-have-to-know/)
 - [Which Twilight Book Was My Favorite and Why ...](https://twilight.allwomenstalk.com/which-twilight-book-was-my-favorite-and-why/)
 - [If I Only Knew then What I Know Now ...](https://allwomenstalk.com/if-i-only-knew-then-what-i-know-now/)
 

@@ -70,16 +70,16 @@ The list could go on. The point that I'm trying to make with these selections is
 
 ## Related Posts
 
-- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
 - [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
+- [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
+- [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [Fantastic Books Written by Your Favorite Funny Wom...](https://books.allwomenstalk.com/books-by-funny-women-you-must-read-soon/)
 - [The Best Beach Reads for Girls in Their Twenties ....](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
 

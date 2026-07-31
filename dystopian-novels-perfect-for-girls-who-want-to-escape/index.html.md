@@ -148,16 +148,16 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
+- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
+- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
 - [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
 - [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
-- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
-- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
-- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
-- [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
 - [skin short story](https://books.allwomenstalk.com/short-story-collections-for-girls-short-on-time/)
-- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [mother reader](https://books.allwomenstalk.com/books-to-buy-your-mom-for-mothers-day-if-shes-a-reader/)
 - [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
+- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
+- [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [heartbreaking books](https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/)
 - [High School Romcoms for Girls Who Feel Nostalgic ....](https://movies.allwomenstalk.com/romantic-comedies-set-in-high-school/)
 - [The Best Beach Reads for Girls in Their Twenties ....](https://books.allwomenstalk.com/the-best-beach-reads-for-girls-in-their-twenties/)
 

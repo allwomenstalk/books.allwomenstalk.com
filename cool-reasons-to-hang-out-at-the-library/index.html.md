@@ -42,16 +42,16 @@ Why do you go to the library? I wish I had more time to read, but I love going t
 
 ## Related Posts
 
-- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
-- [good luck traditions around the world](https://travel.allwomenstalk.com/new-year-traditions-around-the-world/)
-- [new year what to do](https://lifestyle.allwomenstalk.com/important-things-to-do-in-the-new-year/)
-- [surprise party food ideas](https://lifestyle.allwomenstalk.com/stupendous-ideas-for-a-surprise-party/)
 - [fun things to do when you re bored](https://lifestyle.allwomenstalk.com/fun-things-to-do-when-youre-bored/)
-- [new year things](https://lifestyle.allwomenstalk.com/great-things-to-do-in-the-new-year/)
+- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
+- [new year what to do](https://lifestyle.allwomenstalk.com/important-things-to-do-in-the-new-year/)
+- [carnival birthday shirt ideas](https://parenting.allwomenstalk.com/fun-ways-to-create-a-carnival-themed-birthday-party/)
 - [hobbies to do with your hands](https://diy.allwomenstalk.com/really-fun-hobbies-that-wont-break-the-bank/)
 - [things to do on a snowy day](https://lifestyle.allwomenstalk.com/activities-for-kids-of-all-ages-to-do-in-snowy-weather/)
-- [colorado winter vacations for non skiers](https://travel.allwomenstalk.com/things-to-do-in-a-ski-resort-when-theres-no-snow/)
-- [carnival birthday shirt ideas](https://parenting.allwomenstalk.com/fun-ways-to-create-a-carnival-themed-birthday-party/)
+- [good luck traditions around the world](https://travel.allwomenstalk.com/new-year-traditions-around-the-world/)
+- [things to do while watching a show](https://lifestyle.allwomenstalk.com/things-you-can-do-while-watching-television/)
+- [new year things](https://lifestyle.allwomenstalk.com/great-things-to-do-in-the-new-year/)
+- [surprise party food ideas](https://lifestyle.allwomenstalk.com/stupendous-ideas-for-a-surprise-party/)
 - [7 Great Places to Watch Movies ...](https://movies.allwomenstalk.com/great-places-to-watch-movies/)
 - [8 Reasons to Join a Summer Book Club ...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-summer-book-club/)
 

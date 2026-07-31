@@ -83,15 +83,15 @@ When I returned to the couch, bouncing and blushing, "Elsa" wrapped her arms aro
 ## Related Posts
 
 - [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
-- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
-- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
-- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
 - [riche le eye smoldering plum](https://books.allwomenstalk.com/books-thatll-inspire-you-to-make-a-new-start-in/)
-- [Want a Great Partner? Choose a Book Lover !](https://love.allwomenstalk.com/want-a-great-partner-choose-a-book-lover/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
 - [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [Want a Great Partner? Choose a Book Lover !](https://love.allwomenstalk.com/want-a-great-partner-choose-a-book-lover/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
+- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
+- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
+- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 - [8 Funny Memoir Books to Lighten Your Mood ...](https://lifestyle.allwomenstalk.com/funny-memoir-books-to-lighten-your-mood/)
 

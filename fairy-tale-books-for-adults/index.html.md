@@ -82,16 +82,16 @@ These are just some of the fantastic fairytales for adults than you can enjoy. T
 
 ## Related Posts
 
-- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Incredible Children's Books ...](https://allwomenstalk.com/7-incredible-childrens-books/)
 

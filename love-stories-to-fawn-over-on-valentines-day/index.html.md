@@ -77,16 +77,16 @@ What love stories would you add to this list?
 
 ## Related Posts
 
-- [funny ikea instructions](https://funny.allwomenstalk.com/you-have-to-see-ikeas-silly-but-sweet-love-manual/)
-- [YA Short Story : Love Alert (Part 1) ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
 - [Memorable Ways to Make the First "I Love You" Perf...](https://love.allwomenstalk.com/ways-to-get-the-first-i-love-you-right/)
-- [Short Story: Love Alert (Part 4) ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
-- [Short Story: Love Alert (Part 3) ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
-- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
-- [Tiny Things You Can do to Bring Joy to Someone New...](https://inspiration.allwomenstalk.com/these-tiny-things-will-brighten-up-anyones-day/)
-- [make out sessions](https://love.allwomenstalk.com/kisses-that-will-fire-up-your-makeout-session/)
-- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
 - [17 Words Romantic Girls Should Use in Texts with T...](https://love.allwomenstalk.com/words-that-romantic-girls-should-use-in-text-messages/)
+- [Short Story: Love Alert (Part 3) ...](https://love.allwomenstalk.com/short-story-love-alert-part-3/)
+- [Short Story: Love Alert (Part 4) ...](https://love.allwomenstalk.com/short-story-love-alert-part-4/)
+- [The Best Places to Say I Love You ...](https://travel.allwomenstalk.com/the-best-places-to-say-i-love-you/)
+- [make out sessions](https://love.allwomenstalk.com/kisses-that-will-fire-up-your-makeout-session/)
+- [deserve love quotes](https://love.allwomenstalk.com/yes-you-deserve-love/)
+- [YA Short Story : Love Alert (Part 1) ...](https://love.allwomenstalk.com/ya-short-story-love-alert-part-1/)
+- [Tiny Things You Can do to Bring Joy to Someone New...](https://inspiration.allwomenstalk.com/these-tiny-things-will-brighten-up-anyones-day/)
+- [funny ikea instructions](https://funny.allwomenstalk.com/you-have-to-see-ikeas-silly-but-sweet-love-manual/)
 - [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
 - [Valentine Project #1 - LOVE Words](https://allwomenstalk.com/valentine-project-1-love-words/)
 

@@ -42,16 +42,16 @@ Do you read Sylvia Plath? Why?
 
 ## Related Posts
 
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
 - [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
 - [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
+- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [5 Reasons a Smart Woman Would Love Twilight ...](https://twilight.allwomenstalk.com/5-reasons-a-smart-woman-would-love-twilight/)
 - [5 Reasons I Understand Your Twilight Obsession ...](https://twilight.allwomenstalk.com/5-reasons-i-understand-your-twilight-obsession/)
 

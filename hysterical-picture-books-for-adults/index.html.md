@@ -72,16 +72,16 @@ Have you ever read a picture book meant for adults?
 
 ## Related Posts
 
-- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
-- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
-- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
-- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
 - [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
+- [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
+- [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)
 - [7 Amazing Satirists ...](https://allwomenstalk.com/7-amazing-satirists/)
 

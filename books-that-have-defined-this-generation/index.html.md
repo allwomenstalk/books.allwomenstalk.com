@@ -56,16 +56,16 @@ No matter what new technologies come along, books will always have a place in so
 
 ## Related Posts
 
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
 - [famous writers from france](https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
+- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

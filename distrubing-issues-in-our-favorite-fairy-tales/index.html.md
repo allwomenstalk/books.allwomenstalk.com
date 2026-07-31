@@ -42,16 +42,16 @@ Another commonality in bedtime stories is that most of the time female character
 
 ## Related Posts
 
-- [A Cure for Chaos ...](https://parenting.allwomenstalk.com/a-cure-for-chaos/)
-- [What You'll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
-- [just me patsy](https://inspiration.allwomenstalk.com/my-life-by-just-paty/)
-- [The Longest Eclipse of the Century is Coming on Ju...](https://lifestyle.allwomenstalk.com/the-longest-eclipse-of-the-century-is-coming-on-july-27th/)
 - [TV Shows Turning 20 in 2018 ...](https://movies.allwomenstalk.com/tv-shows-turning-20-in-2018/)
-- [different types of immigrants](https://lifestyle.allwomenstalk.com/different-types-of-immigrants/)
+- [A Cure for Chaos ...](https://parenting.allwomenstalk.com/a-cure-for-chaos/)
 - [Dingo on the Plains by Aaron Solomon ...](https://inspiration.allwomenstalk.com/dingo-on-the-plains-by-aaron-solomon/)
-- [The Last Time ⏳ by Anon ...](https://parenting.allwomenstalk.com/the-last-time-by-anon/)
-- [short stories about memory](https://books.allwomenstalk.com/memory-a-short-story/)
+- [different types of immigrants](https://lifestyle.allwomenstalk.com/different-types-of-immigrants/)
+- [just me patsy](https://inspiration.allwomenstalk.com/my-life-by-just-paty/)
 - [Social Reforms in Saudi Arabia ...](https://lifestyle.allwomenstalk.com/social-reforms-in-saudi-arabia/)
+- [The Last Time ⏳ by Anon ...](https://parenting.allwomenstalk.com/the-last-time-by-anon/)
+- [What You'll See in the Night Sky This Week ...](https://lifestyle.allwomenstalk.com/what-you-can-see-in-the-sky-at-night-this-week/)
+- [short stories about memory](https://books.allwomenstalk.com/memory-a-short-story/)
+- [The Longest Eclipse of the Century is Coming on Ju...](https://lifestyle.allwomenstalk.com/the-longest-eclipse-of-the-century-is-coming-on-july-27th/)
 - [5 Cool Things about Twilight ...](https://twilight.allwomenstalk.com/5-cool-things-about-twilight/)
 - [5 Funny Confessions of a Werewolf ...](https://twilight.allwomenstalk.com/5-funny-confessions-of-a-werewolf/)
 

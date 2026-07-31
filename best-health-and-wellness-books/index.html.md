@@ -66,16 +66,16 @@ Buy at: [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
-- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
-- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
-- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [immersion manga](https://books.allwomenstalk.com/manga-titles-for-a-beginners-immersion-into-the-genre/)
+- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
+- [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
 - [7 Shortcuts to Better Health ...](https://health.allwomenstalk.com/7-shortcuts-to-better-health/)
 - [7 Best Dieting and Wellness Blogs ...](https://allwomenstalk.com/7-best-dieting-and-wellness-blogs/)
 

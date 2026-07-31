@@ -81,15 +81,15 @@ Self publishing is a great tool for new authors, but can be a costly experiment 
 
 ## Related Posts
 
-- [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
-- [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
-- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
 - [poets like rupi kaur](https://books.allwomenstalk.com/current-poets-you-should-be-reading/)
-- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
 - [erin hanson quotes](https://inspiration.allwomenstalk.com/finding-hope-in-the-broken-by-erin-hanson/)
-- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
+- [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
+- [outlander like books](https://books.allwomenstalk.com/books-to-read-if-you-love-the-outlander-series/)
+- [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
+- [no less than the trees and the stars](https://books.allwomenstalk.com/desiderata-by-max-ehrmann/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
 - [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
 - [10 Tips on How to Become a Writer ...](https://lifestyle.allwomenstalk.com/tips-on-how-to-become-a-writer/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)

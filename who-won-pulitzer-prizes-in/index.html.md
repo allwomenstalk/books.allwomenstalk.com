@@ -66,16 +66,16 @@ A fascinating and intriguing selection, indeed.
 
 ## Related Posts
 
-- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
+- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
 - [Rumors about the MTV Movie Awards ...](https://allwomenstalk.com/rumors-about-the-mtv-movie-awards/)
+- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
+- [Oscars - Jennifer and Leo](https://allwomenstalk.com/oscars-jennifer-and-leo/)
+- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
 - [Jeff Foxworthy Hosts Tonight's CMT Awards ...](https://allwomenstalk.com/jeff-foxworthy-hosts-tonights-cmt-awards/)
-- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [worlds highest paid models](https://celebs.allwomenstalk.com/who-are-the-worlds-highest-paid-models-in/)
 - [8th Annual Maxim Hot 100 Party](https://allwomenstalk.com/8th-annual-maxim-hot-100-party/)
-- [Sasha Goes for Black Accessories @ the Blog Awards](https://allwomenstalk.com/sasha-goes-for-black-accessories-the-blog-awards/)
-- [pulitzer prize winners 2017](https://books.allwomenstalk.com/check-out-the-awesome-pulitzer-prize-winners-of/)
-- [blair red dress paris](https://movies.allwomenstalk.com/the-screens-best-dressed-students/)
-- [42nd Annual Juno Awards ...](https://allwomenstalk.com/42nd-annual-juno-awards/)
+- ['year of the Dog' - Hollywood Premiere!](https://allwomenstalk.com/year-of-the-dog-hollywood-premiere/)
 - [Golden Globe 2011 Nominations ...](https://celebs.allwomenstalk.com/golden-globe-nominations/)
 - [25 Oscar Nominees Who Should Win This Year ...](https://bilbr.com/25-oscar-nominees-who-should-win-this-year/)
 

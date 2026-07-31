@@ -42,16 +42,16 @@ Books have a chance of existing for a lifetime - especially since they are typic
 
 ## Related Posts
 
-- [vitamix quiz](https://food.allwomenstalk.com/reasons-to-own-a-vitamix-blender/)
-- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
-- [how does integrity help you in life](https://inspiration.allwomenstalk.com/reasons-why-integrity-is-important/)
-- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
 - [why you should visit the philippines](https://travel.allwomenstalk.com/reasons-why-you-should-visit-the-philippines-after-the-typhoon/)
-- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
-- [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
-- [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
 - [why we watch](https://inspiration.allwomenstalk.com/reasons-why-you-should-spend-more-time-people-watching/)
 - [why is to kill a mockingbird important](https://books.allwomenstalk.com/reasons-why-you-should-read-to-kill-a-mockingbird/)
+- [importance of local community](https://lifestyle.allwomenstalk.com/reasons-to-support-your-local-community/)
+- [vitamix quiz](https://food.allwomenstalk.com/reasons-to-own-a-vitamix-blender/)
+- [pros and cons of dating an athlete](https://fitness.allwomenstalk.com/awesome-reasons-to-date-an-athlete/)
+- [its not too late](https://inspiration.allwomenstalk.com/reasons-why-its-never-too-late-to-do-anything/)
+- [how does integrity help you in life](https://inspiration.allwomenstalk.com/reasons-why-integrity-is-important/)
+- [how do you put together a flute](https://music.allwomenstalk.com/pros-and-cons-of-playing-the-flute/)
+- [good grammar or proper grammar](https://lifestyle.allwomenstalk.com/important-reasons-why-good-grammar-matters/)
 - [8 Reasons to Join a Summer Book Club ...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-summer-book-club/)
 - [8 Tops Reasons to Make Lists ...](https://lifestyle.allwomenstalk.com/tops-reasons-to-make-lists/)
 

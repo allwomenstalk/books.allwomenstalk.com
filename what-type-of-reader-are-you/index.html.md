@@ -43,15 +43,15 @@ Which reader type are you? I like to think I’m type #1, but I think I lean mor
 ## Related Posts
 
 - [tinkerbell and best friend](https://movies.allwomenstalk.com/which-disney-bff-would-you-be/)
-- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
 - [empower writing program](https://inspiration.allwomenstalk.com/how-can-writing-empower-you/)
-- [color riche le smoky eye rose nude](https://makeup.allwomenstalk.com/which-one-of-these-unique-makeup-styles-fits-you/)
-- [different ways to cuddle](https://love.allwomenstalk.com/what-does-your-cuddling-position-say-about-your-relationship/)
-- [what are sloppy kisses](https://love.allwomenstalk.com/what-does-your-kissing-style-say-about-your-relationship/)
+- [major emotions](https://lifestyle.allwomenstalk.com/what-are-the-major-emotions/)
 - [lady gaga heart engagement ring](https://jewelry.allwomenstalk.com/which-of-these-celebrity-engagement-rings-you-would-say-yes-to/)
 - [yuccie style](https://lifestyle.allwomenstalk.com/are-you-a-yuccie-heres-how-to-tell/)
-- [emotions by bf](https://love.allwomenstalk.com/is-your-bf-manipulating-your-emotions/)
 - [newlywed show questions](https://love.allwomenstalk.com/can-you-and-your-bf-answer-these-newlywed-show-questions/)
+- [different ways to cuddle](https://love.allwomenstalk.com/what-does-your-cuddling-position-say-about-your-relationship/)
+- [what are sloppy kisses](https://love.allwomenstalk.com/what-does-your-kissing-style-say-about-your-relationship/)
+- [color riche le smoky eye rose nude](https://makeup.allwomenstalk.com/which-one-of-these-unique-makeup-styles-fits-you/)
+- [emotions by bf](https://love.allwomenstalk.com/is-your-bf-manipulating-your-emotions/)
 - [Who's Your Audience?](https://allwomenstalk.com/whos-your-audience/)
 - [A Reader Writes: Now That the Book is Done, What H...](https://allwomenstalk.com/a-reader-writes-now-that-the-book-is-done-what-h-snarkspot/)
 

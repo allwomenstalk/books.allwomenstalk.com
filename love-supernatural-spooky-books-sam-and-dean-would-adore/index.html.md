@@ -71,15 +71,15 @@ As much as you'd like to watch Supernatural all day, it's impossible. That's why
 ## Related Posts
 
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
-- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
-- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
-- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
-- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
-- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
 - [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
+- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

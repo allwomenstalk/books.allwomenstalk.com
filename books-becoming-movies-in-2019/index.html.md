@@ -68,16 +68,16 @@ amazon.com_
 
 ## Related Posts
 
-- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
-- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
+- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

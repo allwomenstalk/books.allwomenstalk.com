@@ -42,16 +42,16 @@ There are so many love stories out there – some with happy endings, a lot that
 
 ## Related Posts
 
-- [is valentine's day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
-- [boyfriend working on valentine's day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
-- [crush gif](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-what-a-crush-feels-like/)
-- [valentine best gift](https://love.allwomenstalk.com/valentines-gifts-and-gestures-that-dont-cost-a-penny/)
-- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
-- [how old is valentine's day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
-- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
-- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
-- [statistically, a woman who purchases flowers on va...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
 - [happy valentines day best friend](https://lifestyle.allwomenstalk.com/ways-to-celebrate-valentines-day-with-your-best-friends/)
+- [statistically, a woman who purchases flowers on va...](https://love.allwomenstalk.com/valentines-day-statistics-that-might-surprise-you/)
+- [crush gif](https://funny.allwomenstalk.com/gifs-that-perfectly-describe-what-a-crush-feels-like/)
+- [is valentine's day celebrated around the world](https://travel.allwomenstalk.com/ways-valentines-day-is-celebrated-around-the-world/)
+- [valentine blues](https://love.allwomenstalk.com/ways-to-deal-with-the-valentines-day-blues/)
+- [boyfriend working on valentine's day](https://love.allwomenstalk.com/ways-to-cope-with-valentines-day-when-you-cant-be-with-your-partner/)
+- [food date ideas](https://love.allwomenstalk.com/food-related-date-ideas-for-hungry-couples/)
+- [valentine best gift](https://love.allwomenstalk.com/valentines-gifts-and-gestures-that-dont-cost-a-penny/)
+- [how old is valentine's day](https://inspiration.allwomenstalk.com/ways-to-explain-valentines-day-to-your-children/)
+- [feeling like million bucks](https://inspiration.allwomenstalk.com/ways-to-feel-like-a-million-dollars-this-valentines-day/)
 - [7 Best Movie Kisses ...](https://movies.allwomenstalk.com/best-movie-kisses/)
 - [8 Most Romantic Love Scenes ...](https://movies.allwomenstalk.com/most-romantic-love-scenes/)
 

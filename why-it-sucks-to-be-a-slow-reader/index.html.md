@@ -42,16 +42,16 @@ I know these are all **reasons why it sucks to be a slow reader**, but I love it
 
 ## Related Posts
 
-- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
-- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
 - [11th disney princess](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-disney-princesses/)
-- [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
 - [this ain t cheaters xxx](https://love.allwomenstalk.com/nobody-is-good-at-cheating/)
-- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
+- [learning to not give a f book](https://inspiration.allwomenstalk.com/lessons-to-learn-from-the-subtle-art-of-not-giving-a-fck/)
+- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
+- [things that move forward](https://inspiration.allwomenstalk.com/things-you-must-give-up-to-move-forward/)
+- [wemmmmm](https://inspiration.allwomenstalk.com/hacks-for-making-difficult-decisions/)
 - [once the sea touches your soul](https://inspiration.allwomenstalk.com/that-ocean-of-your-soul/)
+- [kisses aren't contracts](https://inspiration.allwomenstalk.com/after-a-while-youd-learn/)
 - [10 life lessons from buddha](https://inspiration.allwomenstalk.com/lessons-we-can-learn-from-buddha-for-a-better-life/)
 - [hugging etiquette](https://lifestyle.allwomenstalk.com/important-things-to-know-about-hugging-etiquette-in-the-metoo-era/)
-- [what to do on christmas by yourself](https://inspiration.allwomenstalk.com/things-to-tell-yourself-if-you-are-spending-christmas-alone/)
 - [Get Caught Reading ...](https://allwomenstalk.com/get-caught-reading/)
 - [7 Reasons Why You Should Read ...](https://allwomenstalk.com/7-reasons-why-you-should-read/)
 

@@ -80,16 +80,16 @@ I know not everyone agrees that these books should be read in schools, but I per
 
 ## Related Posts
 
-- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
-- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
 - [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
-- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
-- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
 - [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
+- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
+- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
+- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

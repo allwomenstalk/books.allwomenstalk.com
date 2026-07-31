@@ -69,15 +69,15 @@ Hopefully this has given you a few titles you want to add to your Kindle wishlis
 ## Related Posts
 
 - [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
 - [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [9 Great Free Amazon Books for Kindle ...](https://lifestyle.allwomenstalk.com/great-free-amazon-books-for-kindle/)
 

@@ -66,15 +66,15 @@ These are just a few of the top cookbooks that I have in my kitchen! Do you have
 
 ## Related Posts
 
-- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
 - [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
 - [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [7 Cupcake Cookbooks ...](https://thecrepescafe.com/7-cupcake-cookbooks/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)

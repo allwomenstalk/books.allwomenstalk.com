@@ -56,16 +56,16 @@ These books had a huge impact on me, and I know they've touched many other reade
 
 ## Related Posts
 
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
 - [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
 - [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

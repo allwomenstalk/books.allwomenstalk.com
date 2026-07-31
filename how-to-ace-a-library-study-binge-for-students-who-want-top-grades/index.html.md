@@ -50,16 +50,16 @@ These tips won’t make study binge sessions at the library fun but they will be
 
 ## Related Posts
 
-- [Girl's Guide to Choosing Your Degree ...](https://money.allwomenstalk.com/guide-to-choosing-your-degree/)
+- [28 Important Pieces of Information College Graduat...](https://lifestyle.allwomenstalk.com/important-pieces-of-information-college-graduates-need-to-know/)
+- [3 Reasons How College Will Teach You about Yoursel...](https://lifestyle.allwomenstalk.com/how-college-will-teach-you-about-yourself/)
+- [9 Courses Recent Grads Can Take Online to Sharpen ...](https://lifestyle.allwomenstalk.com/courses-recent-grads-can-take-online-to-sharpen-up-their-life-skills/)
 - [The Benefits of Attending a Community College You ...](https://money.allwomenstalk.com/benefits-to-attending-community-college-for-two-years/)
+- [10 Things to Always Consider 🤔 when You're Applyi...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
+- [Girl's Guide to Choosing Your Degree ...](https://money.allwomenstalk.com/guide-to-choosing-your-degree/)
+- [Important Things Every College Girl Should Make Ti...](https://lifestyle.allwomenstalk.com/things-that-every-college-girl-should-make-time-for/)
+- [stag high school](https://teen.allwomenstalk.com/things-no-one-tells-you-about-high-school/)
 - [10 Things to do when You're Just Not Feeling Your ...](https://lifestyle.allwomenstalk.com/things-to-do-when-youre-just-not-feeling-your-schoolwork/)
 - [what are the things that the school needs to impro...](https://lifestyle.allwomenstalk.com/little-things-you-can-do-to-improve-the-quality-of-your-school-day/)
-- [3 Reasons How College Will Teach You about Yoursel...](https://lifestyle.allwomenstalk.com/how-college-will-teach-you-about-yourself/)
-- [stag high school](https://teen.allwomenstalk.com/things-no-one-tells-you-about-high-school/)
-- [Important Things Every College Girl Should Make Ti...](https://lifestyle.allwomenstalk.com/things-that-every-college-girl-should-make-time-for/)
-- [10 Things to Always Consider 🤔 when You're Applyi...](https://lifestyle.allwomenstalk.com/things-to-consider-when-applying-for-college/)
-- [28 Important Pieces of Information College Graduat...](https://lifestyle.allwomenstalk.com/important-pieces-of-information-college-graduates-need-to-know/)
-- [9 Courses Recent Grads Can Take Online to Sharpen ...](https://lifestyle.allwomenstalk.com/courses-recent-grads-can-take-online-to-sharpen-up-their-life-skills/)
 - [Sweet Dreams and Good Grades: How to Sleep Better ...](https://teen.allwomenstalk.com/ways-to-sleep-better-in-college/)
 - [Keep Calm and Grade on: Dealing with Exam Nerves s...](https://teen.allwomenstalk.com/tips-for-dealing-with-exam-nerves-so-you-can-succeed/)
 

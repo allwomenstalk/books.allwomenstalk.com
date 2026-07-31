@@ -56,16 +56,16 @@ Some of these really shouldn't qualify as provocative novels any longer, but the
 
 ## Related Posts
 
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
-- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books I Wish I Had Not Wasted My Time Reading .....](https://allwomenstalk.com/7-books-i-wish-i-had-not-wasted-my-time-reading/)
 

@@ -76,14 +76,14 @@ Plays can be just as enjoyable when they’re read as when they’re watched. Th
 
 ## Related Posts
 
+- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
+- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
 - [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
 - [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [kate spade great gatsby](https://fashion.allwomenstalk.com/accessories-inspired-by-books/)
-- [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
-- [reading to your child every night](https://books.allwomenstalk.com/great-books-to-read-to-your-child-before-tucking-them-in-at-night/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [books of vampires](https://books.allwomenstalk.com/awesome-books-to-read-if-you-love-vampires/)
 - [best books on southeast asia history](https://books.allwomenstalk.com/fantastic-books-about-southeast-asia/)
 - [7 Hilarious Comedies to Rent ...](https://movies.allwomenstalk.com/hilarious-comedies-to-rent/)

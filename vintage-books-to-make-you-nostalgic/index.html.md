@@ -153,15 +153,15 @@ Do you have any vintage books in your collection? Which ones? Do you read them o
 
 ## Related Posts
 
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
 - [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
 - [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
 - [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)

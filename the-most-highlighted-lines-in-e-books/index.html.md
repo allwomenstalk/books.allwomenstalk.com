@@ -61,16 +61,16 @@ What's your favorite line from literature?
 
 ## Related Posts
 
-- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
-- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
 - [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
+- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 

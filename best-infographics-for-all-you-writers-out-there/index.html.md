@@ -122,16 +122,16 @@ These are just a few of the great infographics for writers. Which is your favori
 
 ## Related Posts
 
-- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
-- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
-- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
 - [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [quotes about book clubs](https://books.allwomenstalk.com/things-to-love-about-book-clubs/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
+- [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
 - [5 Ingenius Posts to BlogStalk ...](https://allwomenstalk.com/5-ingenius-posts-to-blogstalk/)
 - [18 Popular Keywords for Articles/Blogs ...](https://allwomenstalk.com/18-popular-keywords-for-articlesblogs/)
 

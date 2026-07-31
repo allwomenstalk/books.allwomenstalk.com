@@ -56,16 +56,16 @@ What other books would you suggest reading?
 
 ## Related Posts
 
-- [great long books](https://books.allwomenstalk.com/long-novels-thatll-keep-you-immersed-in-the-story/)
-- [Want a Great Partner? Choose a Book Lover !](https://love.allwomenstalk.com/want-a-great-partner-choose-a-book-lover/)
-- [7 Books You Should Read before the Oscars ...](https://books.allwomenstalk.com/books-you-should-read-before-the-oscars/)
-- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
-- [paris color riche le stylo shadow garnet](https://books.allwomenstalk.com/this-infographic-will-tell-you-what-to-read-next/)
+- [books about new year's resolutions](https://books.allwomenstalk.com/books-that-will-inspire-you-as-you-start-your-new-year-resolutions/)
 - [7 Books That Have Been Turned into Terrific TV Sho...](https://books.allwomenstalk.com/books-that-have-been-turned-into-terrific-tv-shows/)
 - [10 Books You Must Read 🤓 if You've Lost a Loved O...](https://books.allwomenstalk.com/books-to-read-if-youve-lost-a-loved-one/)
-- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
+- [paris color riche le stylo shadow garnet](https://books.allwomenstalk.com/this-infographic-will-tell-you-what-to-read-next/)
+- [great long books](https://books.allwomenstalk.com/long-novels-thatll-keep-you-immersed-in-the-story/)
+- [7 Books You Should Read before the Oscars ...](https://books.allwomenstalk.com/books-you-should-read-before-the-oscars/)
 - [The 7 Best Books of January 2016 ...](https://books.allwomenstalk.com/the-best-books-of-january/)
-- [books about new year's resolutions](https://books.allwomenstalk.com/books-that-will-inspire-you-as-you-start-your-new-year-resolutions/)
+- [Want a Great Partner? Choose a Book Lover !](https://love.allwomenstalk.com/want-a-great-partner-choose-a-book-lover/)
+- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
+- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
 - [Top 10 Books on Self-Improvement ...](https://allwomenstalk.com/top-10-books-on-self-improvement/)
 - [7 Books to Help You Find Financial Freedom ...](https://allwomenstalk.com/books-to-help-you-find-financial-freedom/)
 
