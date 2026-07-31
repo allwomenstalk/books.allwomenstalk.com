@@ -3,7 +3,7 @@ title: "7 James Patterson Novels to Add to Your Book List ..."
 description: "Private Series; Zoo; The Postcard Killers; Guilty Wives; Sail; More ..."
 url: "https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/"
 category: "books"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 James Patterson Novels to Add to Your Book List ...
@@ -56,16 +56,16 @@ What’s your favorite James Patterson book? Will you add any of these to your l
 
 ## Related Posts
 
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
 - [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
-- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
 - [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

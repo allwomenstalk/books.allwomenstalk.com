@@ -3,7 +3,7 @@ title: "7 Time-Travel Romances to Pick up Whenever You're in the Mood for Some M
 description: "Seducing Mr. Darcy by Gwyn Cready; Beyond the Highland Mist by Karen Marie Moning; When There is Hope by Jane Goodger; Once a Pirate by Susan Grant; A Knight in Shining Armor by Jude Deveraux; More ..."
 url: "https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/"
 category: "books"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 7 Time\-Travel Romances to Pick up Whenever You're in the Mood for Some Magic ...
@@ -70,14 +70,14 @@ Is there a particular historical romance that stole your breath away? Something 
 
 ## Related Posts
 
+- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
+- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
+- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
+- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
 - [books everyone should read before they die](https://books.allwomenstalk.com/books-to-read-before-you-die/)
 - [cookbooks by celebrities](https://books.allwomenstalk.com/celebrity-cookbooks-that-you-need-in-your-collection/)
-- [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
-- [writing quill tattoo](https://lifestyle.allwomenstalk.com/clever-tattoos-for-people-who-love-literature/)
-- [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
-- [romcom books to read](https://books.allwomenstalk.com/great-rom-com-books-to-read-this-fall/)
 - [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
-- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
+- [charles dickens most popular books](https://books.allwomenstalk.com/sensational-books-by-charles-dickens/)
 - [dreamcatcher ssdd](https://books.allwomenstalk.com/newer-stephen-king-books-you-should-be-reading-right-now/)
 - [list of louisa may alcott books](https://books.allwomenstalk.com/books-by-louisa-may-alcott-that-are-fun-to-read/)
 - [8 Great Romantic Novels to Read on Vacation ...](https://allwomenstalk.com/8-great-romantic-novels-to-read-on-vacation/)
