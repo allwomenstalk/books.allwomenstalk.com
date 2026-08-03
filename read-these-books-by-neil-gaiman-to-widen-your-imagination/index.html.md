@@ -3,7 +3,7 @@ title: "Feed Your Imagination with a Neil Gaiman Novel ..."
 description: "The Graveyard Book; Smoke and Mirrors; The Ocean at the End of the Lane; Coraline; Stardust; More ..."
 url: "https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/"
 category: "books"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # Feed Your Imagination with a Neil Gaiman Novel ...
@@ -56,16 +56,16 @@ Are their other children's book authors that you can recommend? Feel free to sha
 
 ## Related Posts
 
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
 - [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [Great American Novel ...](https://allwomenstalk.com/great-american-novel/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 
