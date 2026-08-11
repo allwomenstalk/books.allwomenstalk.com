@@ -3,7 +3,7 @@ title: "7 Enjoyable Children's Books by Eric Carle ..."
 description: "A Very Hungry Caterpillar; Rooster's off to See the World; Papa, Please Get the Moon for Me; Pancakes! Pancakes!; A House for Hermit Crab; More ..."
 url: "https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/"
 category: "books"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 7 Enjoyable Children's Books by Eric Carle ...
@@ -63,14 +63,14 @@ What other books by Eric Carle do you like? Do you like other authors of childre
 
 ## Related Posts
 
-- [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
 - [three guilty pleasures](https://books.allwomenstalk.com/books-by-madeleine-wickham-that-are-a-guilty-pleasure-to-read/)
 - [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
-- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [saddest fiction books](https://books.allwomenstalk.com/books-with-sad-endings-you-must-read/)
 - [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [library book sections](https://books.allwomenstalk.com/inspiring-book-sections-to-browse-in-your-local-library/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)

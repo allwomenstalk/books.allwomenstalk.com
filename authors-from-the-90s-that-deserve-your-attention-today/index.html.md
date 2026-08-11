@@ -3,7 +3,7 @@ title: "17 Authors from the '90s That Deserve Your Attention Today ..."
 description: "Helen Fielding; Nick Hornby; Thomas Harris; Anne Rice; Poppy Z. Brite; More ..."
 url: "https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/"
 category: "books"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 17 Authors from the '90s That Deserve Your Attention Today ...
@@ -82,16 +82,16 @@ Do you have any favorite throwback authors from the 1990s?
 
 ## Related Posts
 
-- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
-- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
-- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
-- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
 - [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
+- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
+- [i am 7 and amazing book](https://books.allwomenstalk.com/amazing-novels-worth-reading-for-young-adults/)
 - [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
 - [who will run the frog hospital](https://books.allwomenstalk.com/itty-bitty-books-for-girls-who-dont-have-much-free-time/)
-- [books written from prison](https://books.allwomenstalk.com/books-that-were-written-while-in-prison/)
-- [best book club subscription boxes](https://books.allwomenstalk.com/book-subscription-boxes-avid-readers-will-love/)
+- [site for stories](https://books.allwomenstalk.com/websites-where-smart-girls-can-read-short-stories/)
 - [romantic science fiction books](https://books.allwomenstalk.com/scifi-books-for-women-who-are-sick-of-reading-about-romance/)
+- [only one novel](https://books.allwomenstalk.com/incredibly-talented-writers-who-only-wrote-one-novel/)
+- [fred weasley tot](https://books.allwomenstalk.com/deaths-from-popular-literature-that-shattered-our-hearts/)
 - [5 Blogs by Celebrities You'd Love to Get to Know ....](https://allwomenstalk.com/5-blogs-by-celebrities-youd-love-to-get-to-know/)
 - [7 Amazing Television Heroines from the '90s ...](https://lifestyle.allwomenstalk.com/amazing-television-heroines-from-the-90s/)
 

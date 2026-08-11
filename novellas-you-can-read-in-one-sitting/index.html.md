@@ -3,7 +3,7 @@ title: "7 Novellas You Can (and Should ) Read in One Sitting for Girls Who Don't
 description: "The Old Man and the Sea by Ernest Hemingway; The Awakening by Kate Chopin; The Call of Cthulhu by H.P. Lovecraft; The Pearl by John Steinbeck; Breakfast at Tiffany’s by Truman Capote; More ..."
 url: "https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/"
 category: "books"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 7 Novellas You Can \(and Should \) Read in One Sitting for Girls Who Don't Want Long Stories ...
@@ -70,15 +70,15 @@ Novellas can be just as thrilling as novels. The only difference is they take le
 
 ## Related Posts
 
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
-- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)

@@ -3,7 +3,7 @@ title: "7 Unbelievably Great Books to Read if You Loved the Great Gatsby ..."
 description: "“the Age of Innocence”; “a Woman of No Importance”; “Lilies in the Moonlight”; “Bright Young Things”; “the Sun Also Rises”; More ..."
 url: "https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/"
 category: "books"
-last_updated: "2026-08-03"
+last_updated: "2026-08-11"
 ---
 
 # 7 Unbelievably Great Books to Read if You Loved the Great Gatsby ...
@@ -70,15 +70,15 @@ These are 7 great books for you to check into if you loved “The Great Gatsby.�
 
 ## Related Posts
 
-- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
-- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
 - [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
 - [poe museum.org](https://travel.allwomenstalk.com/must-go-destinations-for-book-nerds/)
-- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
-- [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
-- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
-- [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
 - [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
+- [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
+- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
+- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
+- [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
+- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
+- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
 - [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 John Irving Books You Should Read ...](https://allwomenstalk.com/7-john-irving-books-you-should-read/)
