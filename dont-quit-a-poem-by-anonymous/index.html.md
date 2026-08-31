@@ -42,16 +42,16 @@ How many times have you said to yourself that you give up, but actually, you don
 
 ## Related Posts
 
-- [intense love quotes for him](https://love.allwomenstalk.com/quotes-about-intense-love/)
-- [audrey hepburn i believe in being strong](https://celebs.allwomenstalk.com/audrey-hepburn-quote/)
 - [nur die harten kommen in den garten herkunft](https://inspiration.allwomenstalk.com/best-inspirational-quotes-of-all-time/)
-- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
-- [soisbelle candles](https://inspiration.allwomenstalk.com/beautiful-french-phrases-to-inspire-you/)
-- [quotes about eleanor roosevelt](https://inspiration.allwomenstalk.com/quotes-from-eleanor-roosevelt/)
-- [jealousy is unbecoming](https://inspiration.allwomenstalk.com/how-to-turn-jealousy-into-inspiration/)
-- [perfect friend](https://lifestyle.allwomenstalk.com/how-to-not-resent-your-perfect-friend/)
-- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
 - [maya angelou inspirational quotes](https://inspiration.allwomenstalk.com/inspiring-quotes-from-maya-angelou/)
+- [feeling down quotes about life](https://inspiration.allwomenstalk.com/quotes-to-live-by-when-youre-feeling-down/)
+- [quotes about eleanor roosevelt](https://inspiration.allwomenstalk.com/quotes-from-eleanor-roosevelt/)
+- [audrey hepburn i believe in being strong](https://celebs.allwomenstalk.com/audrey-hepburn-quote/)
+- [perfect friend](https://lifestyle.allwomenstalk.com/how-to-not-resent-your-perfect-friend/)
+- [intense love quotes for him](https://love.allwomenstalk.com/quotes-about-intense-love/)
+- [soisbelle candles](https://inspiration.allwomenstalk.com/beautiful-french-phrases-to-inspire-you/)
+- [ponder vs wonder](https://inspiration.allwomenstalk.com/words-of-wonder-to-ponder/)
+- [jealousy is unbecoming](https://inspiration.allwomenstalk.com/how-to-turn-jealousy-into-inspiration/)
 - [About Life ...](https://allwomenstalk.com/about-life/)
 - [12 Inspirational Life Quotes to Get You through An...](https://lifestyle.allwomenstalk.com/inspirational-life-quotes/)
 

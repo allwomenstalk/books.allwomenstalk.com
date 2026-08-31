@@ -42,16 +42,16 @@ I can't wait to get started on my summer reading list! From new novels to old fa
 
 ## Related Posts
 
-- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [good books for young woman](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
+- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
 - [hottest game characters male](https://books.allwomenstalk.com/hottest-male-book-characters-i-wish-were-real/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
+- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
+- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
 - [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
-- [best cookbook with pictures](https://books.allwomenstalk.com/cookbooks-youve-got-to-own-and-cook-your-way-through/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
-- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
-- [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [books on compulsive eating](https://books.allwomenstalk.com/amazing-books-for-disordered-eating/)
-- [good books for young woman](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
+- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [13 Great New Movies to Watch This Summer ...](https://7fun.net/13-great-new-movies-to-watch/)
 

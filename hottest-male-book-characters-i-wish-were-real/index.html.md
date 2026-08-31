@@ -42,16 +42,16 @@ So, there you go, my list of 7 hottest male book characters I wish were real…D
 
 ## Related Posts
 
-- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
-- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
-- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
 - [xaviera hollander books pdf](https://books.allwomenstalk.com/provocative-novels-you-might-not-want-to-read-in-public/)
-- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
-- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
-- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
 - [famous mystery detectives](https://books.allwomenstalk.com/greatest-fictional-detectives-that-you-should-read-about/)
 - [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [great book characters](https://books.allwomenstalk.com/famous-book-characters-that-inspire-me-every-day/)
+- [what are the classic books everyone should read?](https://books.allwomenstalk.com/classic-novels-with-timeless-messages-to-read-now/)
+- [worst movies based on books](https://books.allwomenstalk.com/great-books-that-made-bad-movies/)
+- [example of drama book](https://books.allwomenstalk.com/dramatic-books-youll-love-this-summer/)
+- [awesome graphic novels](https://books.allwomenstalk.com/awesome-graphic-novels-thatll-make-your-jaw-drop/)
+- [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
+- [understanding yourself book](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 - [5 Hot Vampire Guys from the Twilight Series ...](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
 - [7 Hottest on-Screen Heroes of All Times ...](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 

@@ -212,16 +212,16 @@ What's the best book you've read in 2015? I highly suggest reading Gone Girl, Re
 
 ## Related Posts
 
-- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
+- [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
 - [funny inspirational books](https://books.allwomenstalk.com/inspirational-memoirs-thatll-also-make-you-laugh/)
+- [funniest novels](https://books.allwomenstalk.com/the-funniest-book-dedications-ever-written/)
+- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [movies like how to be single](https://books.allwomenstalk.com/read-these-books-before-they-become-movies-in/)
 - [fit book it](https://books.allwomenstalk.com/how-to-fit-more-reading-into-your-schedule-this-year/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
 - [kindle paperwhite free books](https://books.allwomenstalk.com/kindle-secrets-thatll-make-reading-more-fun/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
-- [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
-- [you.com how to write well](https://lifestyle.allwomenstalk.com/websites-thatll-make-you-a-better-writer/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)
 - [8 Fun Books for Single Girls ...](https://allwomenstalk.com/fun-books-for-single-girls/)
 

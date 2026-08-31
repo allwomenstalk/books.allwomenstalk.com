@@ -56,16 +56,16 @@ What are your recommendations for books this fall? Will you check any of these o
 
 ## Related Posts
 
-- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
 - [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
 - [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
 - [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
-- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
 - [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Best Books for Pool Side Reading ...](https://allwomenstalk.com/best-books-for-pool-side-reading/)
 

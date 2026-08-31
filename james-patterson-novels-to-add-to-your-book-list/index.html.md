@@ -56,16 +56,16 @@ What’s your favorite James Patterson book? Will you add any of these to your l
 
 ## Related Posts
 
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
 - [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
 - [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
-- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
 - [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [famous writers of european literature](https://books.allwomenstalk.com/great-names-in-classic-european-literature/)
+- [qhere the heart is](https://books.allwomenstalk.com/reasons-you-should-read-billie-letts-where-the-heart-is/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

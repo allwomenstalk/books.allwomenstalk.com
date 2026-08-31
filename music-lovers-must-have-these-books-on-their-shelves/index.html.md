@@ -57,15 +57,15 @@ What are your favorite genres of music and why do you love them?
 ## Related Posts
 
 - [indie music love songs](https://music.allwomenstalk.com/love-indie-music-then-youll-love-these-songs/)
-- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
-- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
-- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [powerful women songs](https://music.allwomenstalk.com/reassuring-songs-thatll-remind-you-youre-a-survivor/)
-- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
-- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [songs to belt in the shower](https://music.allwomenstalk.com/awesome-songs-to-sing-along-to-in-the-shower/)
 - [take me to church demi lovato](https://music.allwomenstalk.com/demis-inspirational-version-of-take-me-to-church/)
+- [best road trip music](https://music.allwomenstalk.com/the-most-epic-songs-for-your-road-trip/)
 - [riche le stylo eye bottomless java](https://movies.allwomenstalk.com/biopics-about-legendary-musicians-you-need-to-see-asap/)
 - [best summer albums](https://music.allwomenstalk.com/these-albums-should-make-up-your-end-of-summer-playlist/)
+- [darker music](https://music.allwomenstalk.com/dark-cabaret-music-like-youve-never-heard-before/)
+- [cool summer songs](https://music.allwomenstalk.com/songs-to-celebrate-summer/)
+- [best musical collaborations](https://music.allwomenstalk.com/best-musical-collaborations-of/)
 - [8 Ways to Discover New Music ...](https://allwomenstalk.com/8-ways-to-discover-new-music/)
 - [10 Great Music Blogs ...](https://allwomenstalk.com/10-great-music-blogs/)
 

@@ -56,15 +56,15 @@ Cats make wonderful subjects for books of all types. I just can't read enough fe
 
 ## Related Posts
 
-- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
-- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
-- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
+- [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
+- [best books for beginning meditation](https://books.allwomenstalk.com/best-books-about-meditation-to-make-you-feel-more-zen-like/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)

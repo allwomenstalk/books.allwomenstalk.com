@@ -42,14 +42,14 @@ Are you part of a book club? Tell us about your experience.
 
 ## Related Posts
 
-- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
-- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
 - [classic books teens](https://books.allwomenstalk.com/classic-books-every-teen-should-read/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
 - [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [books for teenage guys who don't like to read](https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/)
+- [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
 - [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [8 Reasons to Join a Summer Book Club ...](https://lifestyle.allwomenstalk.com/reasons-to-join-a-summer-book-club/)

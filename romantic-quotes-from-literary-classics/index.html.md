@@ -56,16 +56,16 @@ In the mystical world of literature, there are dozens of these quotes flying aro
 
 ## Related Posts
 
-- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
-- [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
-- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
 - [motivational quotes by oprah winfrey](https://inspiration.allwomenstalk.com/inspirational-quotes-by-inspirational-women/)
-- [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
 - [aristotle on emotional intelligence](https://inspiration.allwomenstalk.com/quotes-about-emotional-intelligence-to-make-you-think/)
+- [never regret the decisions you made](https://inspiration.allwomenstalk.com/inspirational-quotes-that-are-actually-surprisingly-true/)
+- [when bad things happen quotes](https://inspiration.allwomenstalk.com/of-the-most-inspiring-quotes-for-overcoming-a-life-crisis/)
+- [quotes from the hunger games book](https://inspiration.allwomenstalk.com/inspiring-quotes-from-the-hunger-games-trilogy/)
 - [daryl dixon quotes](https://inspiration.allwomenstalk.com/inspirational-quotes-from-the-walking-dead/)
-- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
+- [fantastic quote](https://inspiration.allwomenstalk.com/fantastically-motivational-quotes-to-start-the-new-year/)
 - [love relatable quotes](https://movies.allwomenstalk.com/relatable-quotes-from-girls-that-you-will-love/)
 - [fear is. so are regrets](https://inspiration.allwomenstalk.com/empowering-quotes-from-marilyn-monroe/)
+- [mindy from friends](https://celebs.allwomenstalk.com/mindy-kaling-quotes-that-will-make-you-wish-you-were-best-friends/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 

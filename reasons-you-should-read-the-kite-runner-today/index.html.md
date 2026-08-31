@@ -42,16 +42,16 @@ If you haven’t already, you should start reading “The Kite Runner.” If you
 
 ## Related Posts
 
-- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
-- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [books the wealthy read](https://money.allwomenstalk.com/best-finance-books-rich-people-read/)
 - [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
+- [the happy wives club](https://books.allwomenstalk.com/things-to-love-about-the-book-happy-wives-club/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
+- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
 - [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [5 Reasons to Read Twilight ...](https://twilight.allwomenstalk.com/5-reasons-to-read-twilight/)
 - [5 Reasons You Should Read Breaking Dawn ...](https://twilight.allwomenstalk.com/5-reasons-you-should-read-breaking-dawn/)
 

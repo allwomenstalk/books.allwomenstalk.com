@@ -56,16 +56,16 @@ Maggie Royer is a phenomenal writer that you should definitely check out. You ca
 
 ## Related Posts
 
-- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 - [10 Inspirational Poems ...](https://lifestyle.allwomenstalk.com/inspirational-poems/)
 

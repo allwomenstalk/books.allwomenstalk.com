@@ -68,16 +68,16 @@ So don't be daunted by drawing - get yourself a book, a sketching pad and some p
 
 ## Related Posts
 
-- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
-- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
-- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
-- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
-- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
-- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
-- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
-- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
 - [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
+- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
+- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
+- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
+- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
+- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
 - [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
+- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
+- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
 - [7 Ways to Learn New Craft Skills ...](https://lifestyle.allwomenstalk.com/ways-to-learn-new-craft-skills/)
 - [8 Fun Ways to Arrange Your Books ...](https://allwomenstalk.com/8-fun-ways-to-arrange-your-books/)
 

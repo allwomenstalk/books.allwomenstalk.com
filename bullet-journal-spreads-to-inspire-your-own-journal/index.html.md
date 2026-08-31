@@ -50,16 +50,16 @@ Here are some amazing **bullet journal spreads to inspire your own journal**.
 
 ## Related Posts
 
-- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
+- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
+- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
+- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
+- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
+- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
+- [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
+- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
 - [how to get perspective](https://inspiration.allwomenstalk.com/ways-to-gain-more-perspective-in-your-life/)
 - [how to become the life of the party](https://inspiration.allwomenstalk.com/how-to-be-the-life-of-your-own-party/)
-- [starting the year strong](https://inspiration.allwomenstalk.com/how-to-start-the-year-off-strong/)
-- [usclouding](https://inspiration.allwomenstalk.com/why-you-should-make-every-step-count/)
-- [hygge practices](https://lifestyle.allwomenstalk.com/how-to-practice-hygge/)
-- [look for beauty](https://inspiration.allwomenstalk.com/ways-to-see-the-beauty-in-every-day/)
-- [guerlain daisy red](https://inspiration.allwomenstalk.com/empowering-yojijukugo-to-start-your-day/)
-- [loreal paris riche le stylo eye avant azure](https://inspiration.allwomenstalk.com/finding-where-my-passion-lies/)
-- [how to be better in 2023](https://inspiration.allwomenstalk.com/ways-to-make-better-than/)
+- [over-scheduling](https://inspiration.allwomenstalk.com/how-to-stop-overscheduling-your-life/)
 - [8 Ways to Start Your Day Fresh and Focused ...](https://health.allwomenstalk.com/ways-to-start-your-day-fresh-and-focused/)
 - [8 Cleverly Efficient Tips on How to Start Your Day...](https://health.allwomenstalk.com/cleverly-efficient-tips-on-how-to-start-your-day/)
 

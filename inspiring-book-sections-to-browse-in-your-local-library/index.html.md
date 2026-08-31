@@ -42,16 +42,16 @@ Public libraries are an amazing resource that we should make the most of. Take a
 
 ## Related Posts
 
-- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
-- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
-- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
-- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
+- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
 - [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
+- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
 - [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
 - [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
-- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
+- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
-- [dangerism](https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/)
+- [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
+- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
 - [7 Books for Your Child's Collection ...](https://parenting.allwomenstalk.com/books-for-your-childs-collection/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 

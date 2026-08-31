@@ -62,15 +62,15 @@ There might be a lot of books on natural beauty but these eight books garnered a
 
 ## Related Posts
 
-- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
-- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
-- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
-- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
-- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
 - [the lost series books](https://books.allwomenstalk.com/book-series-to-get-lost-in-this-summer/)
 - [20 something book](https://books.allwomenstalk.com/absolutely-amazing-books-to-read-in-your-20s/)
-- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
+- [books that are based on movies](https://books.allwomenstalk.com/books-based-on-movies/)
+- [fiction writing site](https://books.allwomenstalk.com/websites-to-use-when-writing-fiction/)
 - [good books for young woman](https://books.allwomenstalk.com/career-books-every-young-woman-should-read/)
+- [twitter account reader](https://books.allwomenstalk.com/literary-feeds-to-follow-on-twitter/)
+- [good mystery series](https://books.allwomenstalk.com/awesome-mystery-book-series-with-recurring-characters/)
+- [burned by love movie](https://books.allwomenstalk.com/books-to-read-when-youve-been-burned-by-love/)
+- [popular children book series](https://books.allwomenstalk.com/book-series-that-are-great-for-kids/)
 - [best victorian novel](https://books.allwomenstalk.com/victorian-novels-worth-reading/)
 - [7 Best Beauty Buys ...](https://allwomenstalk.com/7-best-beauty-buys/)
 - [7 Phenomenal Gadgets for Beauty ...](https://allwomenstalk.com/7-phenomenal-gadgets-for-beauty/)
