@@ -3,7 +3,7 @@ title: "21 Retro Reads That Were Once Taboo to Add to Your List ..."
 description: "Peyton Place; Return to Peyton Place; Lolita; Valley of the Dolls; Lady Chatterley's Lover; More ..."
 url: "https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/"
 category: "books"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 21 Retro Reads That Were Once Taboo to Add to Your List ...
@@ -140,16 +140,16 @@ What are your favorite banned or taboo books?
 
 ## Related Posts
 
-- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
-- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
+- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
-- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
-- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
-- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
 - [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [authors similar to dean koontz](https://books.allwomenstalk.com/books-for-women-who-want-to-become-authors-too/)
+- [best chick flick books to read](https://books.allwomenstalk.com/chick-lit-books-that-every-woman-should-pick-up/)
+- [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [famous chinese female authors](https://books.allwomenstalk.com/authors-from-the-90s-that-deserve-your-attention-today/)
+- [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
+- [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [8 Controversial Books That You Must Read Now ...](https://allwomenstalk.com/8-controversial-books-that-you-must-read-now/)
 

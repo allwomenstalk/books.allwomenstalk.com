@@ -3,7 +3,7 @@ title: "7 Books for Teens Who Don't like YA Novels ..."
 description: "Lean in; Outlanders; Outliers; All Quiet on the Western Front; The Casual Vacancy; More ..."
 url: "https://books.allwomenstalk.com/books-for-teens-who-dont-like-ya-novels/"
 category: "books"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Books for Teens Who Don't like YA Novels ...
@@ -63,15 +63,15 @@ Some teens are wise beyond their years and crave literature that's "on their lev
 
 ## Related Posts
 
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
-- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
-- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
-- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
-- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
-- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
 - [websites for used books](https://books.allwomenstalk.com/websites-to-buy-super-cheap-books-youll-love/)
+- [art projects with old books](https://diy.allwomenstalk.com/hello-bookworm-fantastic-diy-projects-with-old-books/)
+- [tragic love stories in literature](https://books.allwomenstalk.com/of-literatures-most-tragic-couples/)
+- [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
+- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
