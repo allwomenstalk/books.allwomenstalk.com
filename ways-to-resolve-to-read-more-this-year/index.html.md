@@ -40,16 +40,16 @@ We’ve all done it - lied to a professor, to a coworker, even to a Buzzfeed qui
 
 ## Related Posts
 
+- [change it](https://inspiration.allwomenstalk.com/how-to-change-your-life-15-minutes-at-a-time/)
+- [Genius Ways to Boost Your Creativity ...](https://inspiration.allwomenstalk.com/ways-to-boost-your-creativity/)
+- [5 Positive Self-Affirmations Start Your Day on a H...](https://inspiration.allwomenstalk.com/self-affirmations-to-start-your-day-positively/)
+- [50 Inspirational Ways to Be Rich and Happy ...](https://inspiration.allwomenstalk.com/ways-to-be-rich-and-happy-2/)
+- [palette maximalist eyeshadow blinged brilliant](https://inspiration.allwomenstalk.com/how-to-be-happy-every-day/)
+- [4 Awesome Strategies for Getting Anything You Want...](https://inspiration.allwomenstalk.com/strategies-for-getting-anything-you-want/)
 - [secret life hacks](https://inspiration.allwomenstalk.com/secret-life-hacks/)
 - [Get Ahead by Doing Less ...](https://inspiration.allwomenstalk.com/7-steps-to-working-smarter/)
-- [Genius Ways to Boost Your Creativity ...](https://inspiration.allwomenstalk.com/ways-to-boost-your-creativity/)
-- [4 Awesome Strategies for Getting Anything You Want...](https://inspiration.allwomenstalk.com/strategies-for-getting-anything-you-want/)
-- [palette maximalist eyeshadow blinged brilliant](https://inspiration.allwomenstalk.com/how-to-be-happy-every-day/)
-- [50 Inspirational Ways to Be Rich and Happy ...](https://inspiration.allwomenstalk.com/ways-to-be-rich-and-happy-2/)
-- [change it](https://inspiration.allwomenstalk.com/how-to-change-your-life-15-minutes-at-a-time/)
-- [Inspirational Ways to Value Yourself More ...](https://inspiration.allwomenstalk.com/ways-to-value-yourself-more/)
 - [loreal stylo garde azure](https://inspiration.allwomenstalk.com/healthy-habits-for-a-better-you/)
-- [5 Positive Self-Affirmations Start Your Day on a H...](https://inspiration.allwomenstalk.com/self-affirmations-to-start-your-day-positively/)
+- [Inspirational Ways to Value Yourself More ...](https://inspiration.allwomenstalk.com/ways-to-value-yourself-more/)
 - [9 Classic New Years Resolutions You Should Conside...](https://lifestyle.allwomenstalk.com/classic-new-years-resolutions-you-should-consider/)
 - [8 Ways to Encourage Your Children to Read ...](https://allwomenstalk.com/8-ways-to-encourage-your-children-to-read/)
 

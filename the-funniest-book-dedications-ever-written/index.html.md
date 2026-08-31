@@ -116,16 +116,16 @@ It's always nice when authors have a sense of humor. What's the best book dedica
 
 ## Related Posts
 
+- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
+- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [hot scenes in books](https://books.allwomenstalk.com/literary-books-that-actually-have-amazing-sex-scenes/)
 - [famous opening lines of children's books](https://books.allwomenstalk.com/the-best-opening-lines-from-childrens-books/)
 - [taboo reading](https://books.allwomenstalk.com/retro-reads-that-the-world-once-considered-taboo/)
 - [detective scott young lapd](https://books.allwomenstalk.com/these-mystery-books-will-engage-your-inner-detective/)
-- [book with different endings](https://books.allwomenstalk.com/books-that-will-blow-your-mind-with-their-surprise-endings/)
-- [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
-- [best foodie books](https://books.allwomenstalk.com/books-about-food-that-arent-cookbooks/)
 - [divine secrets of the ya-ya sisterhood quotes](https://books.allwomenstalk.com/what-books-should-you-base-your-life-on/)
-- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
 - [books that make you see the world differently](https://books.allwomenstalk.com/these-childrens-books-will-make-you-see-the-world-differently/)
+- [most weird books](https://books.allwomenstalk.com/these-weird-books-will-blow-your-mind/)
+- [best wine book](https://lifestyle.allwomenstalk.com/the-best-book-and-wine-pairings-for-a-quiet-night-in/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 

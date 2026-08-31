@@ -46,15 +46,15 @@ $10.99 at amazon.com_
 
 ## Related Posts
 
-- [instagram book club](https://books.allwomenstalk.com/find-your-next-read-from-suggestions-in-these-instagram-book-clubs/)
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
 - [womens wellness books](https://books.allwomenstalk.com/wellness-books-every-woman-should-read/)
-- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [the best place to read](https://books.allwomenstalk.com/the-best-places-to-read/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [instagram book club](https://books.allwomenstalk.com/find-your-next-read-from-suggestions-in-these-instagram-book-clubs/)
 - [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
+- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
 - [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
+- [the best place to read](https://books.allwomenstalk.com/the-best-places-to-read/)
 - [best libraries in world](https://books.allwomenstalk.com/best-libraries-in-the-world/)
 - [Toxic Relationships - Hope and Renewal](https://allwomenstalk.com/toxic-relationships-hope-and-renewal/)
 - [When Obsessive Love Turns to Freaky Fatal Attracti...](https://allwomenstalk.com/when-obsessive-love-turns-to-freaky-fatal-attraction/)

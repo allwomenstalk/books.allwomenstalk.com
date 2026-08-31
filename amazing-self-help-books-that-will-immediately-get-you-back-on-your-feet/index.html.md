@@ -69,16 +69,16 @@ So, there you go, 7 of the most amazing self-help books I’ve read that have re
 
 ## Related Posts
 
-- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
-- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
-- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
-- [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
-- [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
-- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
 - [how to improve as a person](https://inspiration.allwomenstalk.com/best-ways-to-improve-yourself-as-a-person/)
-- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
-- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
+- [keep the memories alive](https://lifestyle.allwomenstalk.com/effective-ways-to-keep-your-memories-alive/)
+- [techniques to improve emotional intelligence](https://inspiration.allwomenstalk.com/extremely-efficient-tips-to-improve-your-emotional-intelligence/)
+- [prioties](https://inspiration.allwomenstalk.com/secrets-to-living-a-balanced-and-purpose-filled-life/)
 - [how to start your day off right](https://inspiration.allwomenstalk.com/ways-to-start-your-day-off-right/)
+- [putting out positive energy](https://inspiration.allwomenstalk.com/ways-to-put-out-positive-energy/)
+- [how to make yourself more productive](https://inspiration.allwomenstalk.com/useful-ways-to-make-yourself-more-productive/)
+- [positive things to tell yourself](https://inspiration.allwomenstalk.com/positive-truths-to-tell-yourself-each-and-every-single-day/)
+- [dulce candy 87](https://lifestyle.allwomenstalk.com/tips-for-taking-notes-thatll-change-your-life/)
+- [principles and practice of yoga](https://fitness.allwomenstalk.com/principles-of-yoga-that-can-make-you-a-better-person/)
 - [Top 10 Books on Self-Improvement ...](https://allwomenstalk.com/top-10-books-on-self-improvement/)
 - [7 Inspiring Books You Need to Read to Get to Know ...](https://books.allwomenstalk.com/inspiring-books-you-need-to-read-to-get-to-know-yourself-better/)
 

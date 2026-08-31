@@ -70,14 +70,14 @@ amazon.com_
 
 - [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
+- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
-- [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
-- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
 - [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

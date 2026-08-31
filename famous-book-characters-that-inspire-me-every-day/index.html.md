@@ -67,15 +67,15 @@ So, there you go, this is my list of 7 famous book characters that really inspir
 
 ## Related Posts
 
-- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
-- [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
-- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
-- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
 - [famous authors who were rejected](https://books.allwomenstalk.com/famous-authors-who-were-rejected-and-finally-made-it-big/)
+- [new england author](https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/)
+- [books about parties](https://books.allwomenstalk.com/books-for-theme-parties-your-guests-will-adore/)
 - [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
+- [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
 - [stephen kingg](https://books.allwomenstalk.com/authors-id-love-to-have-a-conversation-with/)
 - [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
 - [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books I Would like to Read ...](https://allwomenstalk.com/7-books-i-would-like-to-read/)

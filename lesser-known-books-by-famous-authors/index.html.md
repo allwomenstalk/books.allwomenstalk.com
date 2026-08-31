@@ -56,16 +56,16 @@ So do check out the lesser-known works by your favorite authors; you'll discover
 
 ## Related Posts
 
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
 - [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
 - [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
+- [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 

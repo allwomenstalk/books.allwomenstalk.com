@@ -57,15 +57,15 @@ It's rare to find a novel as chilling as Gone Girl, but there are plenty of book
 ## Related Posts
 
 - [books every college student should read](https://books.allwomenstalk.com/essential-books-that-every-college-student-should-read/)
-- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
-- [Love the Divergent Series? then You'll Love These ...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
 - [7 Literary Inspired Dates Bookworms Will Love ...](https://love.allwomenstalk.com/literary-inspired-dates-bookworms-will-love/)
 - [You Won't Want to Sleep Once You Start Reading The...](https://books.allwomenstalk.com/you-wont-want-to-sleep-once-you-start-reading-these-mind-blowing-scifi-novels/)
-- [Want to Be a Writer? Here's How to Publish Your Ow...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [literature classic romance novels](https://books.allwomenstalk.com/classic-books-about-love-every-girl-should-read-at-least-once/)
 - [7 Books to Read to Inspire You about Being a Woman...](https://books.allwomenstalk.com/books-to-read-to-inspire-you-about-being-a-woman-in-the-workplace/)
+- [Want to Be a Writer? Here's How to Publish Your Ow...](https://books.allwomenstalk.com/want-to-be-a-writer-heres-how-to-publish-your-own-e-book/)
+- [Love the Divergent Series? then You'll Love These ...](https://books.allwomenstalk.com/love-the-divergent-series-then-youll-love-these-books-too/)
 - [Here Are the Books You Must Devour before You Turn...](https://books.allwomenstalk.com/here-are-the-books-you-must-devour-before-you-turn/)
-- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
 - [Celeb Autobiographies You Need on Your Coffee Tabl...](https://books.allwomenstalk.com/live-the-life-of-a-star-celeb-autobiographies-you-need-on-your-shelf/)
+- [7 Struggles of Being a Bookworm ...](https://funny.allwomenstalk.com/struggles-of-being-a-bookworm/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Must Read Chick-Lit Novels ...](https://allwomenstalk.com/7-must-read-chick-lit-novels/)
 

@@ -90,15 +90,15 @@ Whether you like it or not, Fifty Shades definitely changed the world! It made e
 
 ## Related Posts
 
-- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 - [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
 - [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
-- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 - [Summer Reading: Cupcakes!](https://allwomenstalk.com/summer-reading-cupcakes/)
 - [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
+- [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
+- [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
 - [5 Facts on 2012 ...](https://twilight.allwomenstalk.com/facts-on/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)

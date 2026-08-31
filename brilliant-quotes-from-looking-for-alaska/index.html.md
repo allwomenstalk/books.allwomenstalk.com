@@ -56,16 +56,16 @@ Pudge is obsessed with last words in John Green’s “Looking for Alaska.” In
 
 ## Related Posts
 
-- [coco chanel - quotes, fashion & facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
-- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
+- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
+- [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
+- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
 - [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
 - [wayne dyer quotes on relationships](https://love.allwomenstalk.com/simple-quotes-about-the-language-of-love/)
-- [7 heaven theme song](https://movies.allwomenstalk.com/awesome-life-quotes-from-7th-heaven/)
-- [noah's poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
-- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [i fell in love slowly and then all at once](https://inspiration.allwomenstalk.com/inspiring-quotes-from-john-green-that-youll-love/)
+- [coco chanel - quotes, fashion & facts](https://inspiration.allwomenstalk.com/fabulous-quotes-from-coco-chanel/)
 - [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [noah's poem from the notebook](https://books.allwomenstalk.com/engrossing-quotes-from-the-notebook/)
+- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [10 Favorite Quotes ...](https://allwomenstalk.com/10-favorite-quotes/)
 

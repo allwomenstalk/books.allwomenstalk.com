@@ -70,16 +70,16 @@ If you’re looking for a new author to try, please give Tom Sharpe a go. He mig
 
 ## Related Posts
 
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
 - [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
-- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
 - [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
-- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
-- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
+- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
+- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

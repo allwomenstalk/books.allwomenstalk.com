@@ -56,16 +56,16 @@ Have you read any of these before?
 
 ## Related Posts
 
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
 - [7 Fascinating Books on Style ...](https://fashion.allwomenstalk.com/fascinating-books-on-style/)
 - [7 Best Books on Fashion ...](https://allwomenstalk.com/7-best-books-on-fashion/)
 

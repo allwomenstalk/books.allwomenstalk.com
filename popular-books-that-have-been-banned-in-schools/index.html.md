@@ -80,16 +80,16 @@ I know not everyone agrees that these books should be read in schools, but I per
 
 ## Related Posts
 
-- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
-- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
 - [to catch a pirate jade parker](https://books.allwomenstalk.com/underrated-books-with-interesting-plots/)
-- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
-- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
-- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
-- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
-- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
 - [michael silverblatt illness](https://celebs.allwomenstalk.com/celebrities-who-are-major-bookworms/)
+- [lovley books](https://books.allwomenstalk.com/lovely-books-about-love/)
+- [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
+- [alex cross series list](https://books.allwomenstalk.com/james-patterson-novels-to-add-to-your-book-list/)
+- [lenny catcher in the rye](https://books.allwomenstalk.com/books-that-you-should-have-read-in-school-but-didnt/)
 - [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
+- [educational magazines teens](https://teen.allwomenstalk.com/best-magazines-for-teens-that-you-should-be-reading/)
+- [berenstain bear books](https://books.allwomenstalk.com/berenstain-bears-books-for-a-childs-book-collection/)
 - [10 Banned Books ...](https://lifestyle.allwomenstalk.com/banned-books/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

@@ -70,16 +70,16 @@ Autumn is the perfect season for catching up on all the reading you've been want
 
 ## Related Posts
 
+- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
 - [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
+- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
 - [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
-- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
-- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
 - [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
 - [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
-- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
 - [5 Books to Fill That Space in Your Bookshelf...](https://allwomenstalk.com/5-books-to-fill-that-space-in-your-bookshelf/)
 - [7 Cute Fall Hats ...](https://allwomenstalk.com/7-cute-fall-hats/)
 

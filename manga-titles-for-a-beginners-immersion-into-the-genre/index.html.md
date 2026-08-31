@@ -52,16 +52,16 @@ This manga takes on both India’s Mahabharata and other epic stores to present 
 
 ## Related Posts
 
-- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
-- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
-- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
+- [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
 - [books to be happier](https://books.allwomenstalk.com/read-these-books-if-you-want-a-happier-life/)
-- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
+- [classic literature that everyone should read](https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/)
+- [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
 - [jane austen similar books](https://books.allwomenstalk.com/books-to-read-if-you-love-jane-austen/)
 - [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [books about starting college](https://books.allwomenstalk.com/books-every-college-student-should-read/)
+- [romance novel aesthetic](https://books.allwomenstalk.com/romance-novels-for-when-you-want-a-steamy-read/)
+- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 

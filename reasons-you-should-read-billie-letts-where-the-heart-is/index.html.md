@@ -42,16 +42,16 @@ In the beginning, Novalee takes ex-boyfriend Willie Jack’s hand and puts it on
 
 ## Related Posts
 
-- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
-- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
+- [other authors like james patterson](https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
 - [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
+- [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
 - [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
+- [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [5 Reasons to Read Twilight ...](https://twilight.allwomenstalk.com/5-reasons-to-read-twilight/)
 - [5 Reasons You Should Read Breaking Dawn ...](https://twilight.allwomenstalk.com/5-reasons-you-should-read-breaking-dawn/)
 

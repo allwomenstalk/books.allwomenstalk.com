@@ -52,16 +52,16 @@ It's fun learning new quotes, but it's even more fun learning where they came fr
 
 ## Related Posts
 
-- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
-- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
+- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
+- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
 - [hold forever](https://inspiration.allwomenstalk.com/inspirational-memories-to-hold-onto-forever/)
 - [love quotes about dreams](https://inspiration.allwomenstalk.com/great-inspirational-quotes-about-following-your-dreams/)
-- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
 - [dr seuss stand out quote](https://inspiration.allwomenstalk.com/insipiring-quotes-from-dr-seuss-to-live-by/)
-- [who is one person that you look up to and why](https://inspiration.allwomenstalk.com/inspirational-people-to-look-up-to/)
-- [self love workout quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
+- [charles manson funny quotes](https://inspiration.allwomenstalk.com/thought-provoking-marilyn-manson-quotes-thatll-make-you-change-the-way-you-think-about-him/)
 - [one's dignity may be assaulted quote](https://inspiration.allwomenstalk.com/inspirational-quotes-from-michael-j-fox-that-you-cant-help-but-love/)
-- [my wardrobe quotes](https://inspiration.allwomenstalk.com/quotes-to-hang-in-your-closet-for-inspiration/)
+- [joybell c quotes](https://lifestyle.allwomenstalk.com/enlightening-quotes-to-hang-on-your-wall/)
+- [self love workout quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-that-will-change-your-life/)
+- [tiger motivation quotes](https://fitness.allwomenstalk.com/motivational-workout-quotes-to-awaken-your-inner-tiger/)
 - [8 Worst Books Written by Celebs ...](https://celebs.allwomenstalk.com/8-worst-books-written-by-celebs/)
 - [10 Fun Harry Potter Facts You Didn't Know ...](https://lifestyle.allwomenstalk.com/fun-harry-potter-facts-you-didnt-know/)
 

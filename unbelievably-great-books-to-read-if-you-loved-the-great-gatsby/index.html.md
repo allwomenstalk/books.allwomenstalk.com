@@ -70,16 +70,16 @@ These are 7 great books for you to check into if you loved â€œThe Great Gatsby.â
 
 ## Related Posts
 
-- [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
 - [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
-- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
 - [books about being a woman](https://books.allwomenstalk.com/inspirational-books-thatll-help-you-grow-as-a-woman/)
-- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
 - [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
+- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
+- [books on living life](https://books.allwomenstalk.com/books-thatll-make-you-reevaluate-how-youre-living-your-life/)
+- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
 - [best books about road trips](https://books.allwomenstalk.com/best-books-to-read-on-a-road-trip/)
 - [poe museum.org](https://travel.allwomenstalk.com/must-go-destinations-for-book-nerds/)
-- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
 - [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
+- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 John Irving Books You Should Read ...](https://allwomenstalk.com/7-john-irving-books-you-should-read/)
 

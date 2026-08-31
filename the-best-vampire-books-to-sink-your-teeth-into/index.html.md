@@ -128,16 +128,16 @@ I’d love to hear your recommendations. Please tell us about more great vampire
 
 ## Related Posts
 
-- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
 - [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [A List of the Books in the Twilight Series ...](https://twilight.allwomenstalk.com/a-list-of-the-books-in-the-twilight-series/)
 

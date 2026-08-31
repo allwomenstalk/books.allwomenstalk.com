@@ -58,14 +58,14 @@ If you had to describe your life in six-words, what would you say? What are some
 
 - [old fashion sayings](https://funny.allwomenstalk.com/old-sayings-and-their-origins/)
 - [lines from hunger games](https://funny.allwomenstalk.com/hilarious-hunger-games-inspired-pick-up-lines/)
-- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
-- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
-- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
-- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [if you’re here, who’s running heaven?](https://funny.allwomenstalk.com/funny-replies-to-overused-pesky-pick-up-lines/)
 - [dating customs around the world](https://love.allwomenstalk.com/funny-dating-customs-around-the-world/)
 - [pun lovers](https://funny.allwomenstalk.com/corny-and-hilarious-jokes-for-pun-lovers/)
+- [i do desire we may be better strangers.](https://funny.allwomenstalk.com/clever-shakespearean-insults-to-add-to-your-vocabulary/)
+- [annoying massage](https://lifestyle.allwomenstalk.com/most-annoying-things-to-do-over-text-messages/)
 - [chinese words and meanings in english](https://travel.allwomenstalk.com/chinese-words-you-need-to-know/)
+- [female police officer pick up lines](https://funny.allwomenstalk.com/funny-pick-up-lines-based-off-bbcs-sherlock/)
+- [gmaes to play when bored](https://funny.allwomenstalk.com/texting-games-to-play-when-youre-bored/)
 - [8 Inspirational Sayings ...](https://allwomenstalk.com/8-inspirational-sayings/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

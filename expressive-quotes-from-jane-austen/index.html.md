@@ -75,15 +75,15 @@ Jane Austen was an astute observer of human nature, which is evident in her many
 
 ## Related Posts
 
-- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
-- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
-- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
 - [see you in the future quotes](https://inspiration.allwomenstalk.com/quotes-about-the-future-to-help-you-stop-dwelling-on-the-past/)
-- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
 - [orange is the new black quotes](https://funny.allwomenstalk.com/funny-quotes-from-orange-is-the-new-black/)
-- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
-- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
+- [divergent tris quotes](https://inspiration.allwomenstalk.com/moving-quotes-from-divergent/)
 - [great life lessons quotes](https://celebs.allwomenstalk.com/quotes-by-hilary-duff-that-teach-great-life-lessons/)
+- [inspirational broken heart quotes](https://love.allwomenstalk.com/inspirational-quotes-for-the-broken-hearted/)
+- [celebrities last words](https://celebs.allwomenstalk.com/last-words-from-famous-people/)
+- [quotes body confidence](https://teen.allwomenstalk.com/quotes-on-body-image-every-teen-should-know/)
+- [when you feel humiliated](https://inspiration.allwomenstalk.com/fantastic-quotes-from-diane-von-furstenberg/)
+- [anger buddha](https://inspiration.allwomenstalk.com/enlightening-words-of-wisdom-from-buddha/)
 - [ayn rand atlas shrugged quotes](https://inspiration.allwomenstalk.com/ayn-rand-quotes-to-inspire-your-inner-objectivist/)
 - [7 Everyday Phrases Attributed to Shakespeare ...](https://lifestyle.allwomenstalk.com/everyday-phrases-attributed-to-shakespeare/)
 - [7 Reasons I Love Jane Austen's Novels ...](https://allwomenstalk.com/7-reasons-i-love-jane-austens-novels/)

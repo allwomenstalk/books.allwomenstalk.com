@@ -70,16 +70,16 @@ Even if you typically read romance or science fiction novels, it can't hurt to r
 
 ## Related Posts
 
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
 - [7 Insanely Spooky Books Everyone Who Loves Superna...](https://books.allwomenstalk.com/love-supernatural-spooky-books-sam-and-dean-would-adore/)
 - [androgynous eyeliner](https://books.allwomenstalk.com/fitting-books-to-read-beneath-a-tree-this-fall/)
-- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
-- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
-- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
 - [Books Where Women save the Day ...](https://books.allwomenstalk.com/books-where-women-save-the-day/)
+- [must read baby books for new parents](https://parenting.allwomenstalk.com/best-books-for-soon-to-be-parents/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
 - [awesome books usa](https://books.allwomenstalk.com/the-best-books-of-fall/)
 - [11 Books Librarians Suggest You Read before You Di...](https://books.allwomenstalk.com/books-that-librarians-suggest-you-read-before-you-die/)
+- [29 Books That Will Fuel Your Wanderlust ...](https://books.allwomenstalk.com/books-that-will-fuel-your-wanderlust/)
+- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [paris riche le stylo eye with a twist](https://books.allwomenstalk.com/the-best-2-minute-story-for-book-lovers/)
 - [7 War Movies That You Can't Miss ...](https://movies.allwomenstalk.com/war-movies-that-you-cant-miss/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

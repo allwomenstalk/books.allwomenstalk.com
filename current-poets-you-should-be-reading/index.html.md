@@ -38,16 +38,16 @@ Raised in both New Mexico and Trinidad, Gatwood is an active member of the slam 
 
 ## Related Posts
 
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
-- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
-- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
-- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
 - [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
+- [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
 - [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
 - [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
+- [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

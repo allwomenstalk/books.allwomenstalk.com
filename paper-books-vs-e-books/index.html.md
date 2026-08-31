@@ -27,16 +27,16 @@ The positives for both outweigh their negatives. A negative of the eBook is the 
 
 ## Related Posts
 
-- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
+- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
-- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
-- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
-- [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [Summer Reading: I'm Just Here for the Food](https://allwomenstalk.com/summer-reading-im-just-here-for-the-food/)
 - [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [get caught reading](https://allwomenstalk.com/get-caught-reading/)
+- [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
 - [7 Reasons to Try a Digital Book Reader ...](https://lifestyle.allwomenstalk.com/reasons-to-try-a-digital-book-reader/)
 - [10 Reasons Why IPad is Better than Kindle ...](https://gadgets.allwomenstalk.com/12-reasons-why-ipad-is-better-than-kindle/)
 

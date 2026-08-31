@@ -118,16 +118,16 @@ Source: [POPSUGAR Love & Sex](https://www.popsugar.com/love/Best-2015-Fall-Books
 
 ## Related Posts
 
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [7 Romantic Novels to Read This Summer ...](https://allwomenstalk.com/7-romantic-novels-to-read-this-summer/)
 - [7 Gorgeous Fall Coats ...](https://allwomenstalk.com/7-gorgeous-fall-coats/)
 

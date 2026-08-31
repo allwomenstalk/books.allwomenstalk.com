@@ -42,16 +42,16 @@ These are 7 great books that can cheer you up when you’re feeling down. What b
 
 ## Related Posts
 
-- [poe museum.org](https://travel.allwomenstalk.com/must-go-destinations-for-book-nerds/)
-- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
-- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
-- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
-- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
-- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
-- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
-- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
 - [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
+- [rock and roll coffee table books](https://books.allwomenstalk.com/hostess-101-look-like-a-lady-with-these-classy-coffee-table-books/)
+- [poe museum.org](https://travel.allwomenstalk.com/must-go-destinations-for-book-nerds/)
+- [good books to read if you hate reading](https://books.allwomenstalk.com/hate-reading-these-unbelievably-amazing-books-will-turn-any-non-reader-into-a-bookworm/)
 - [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
+- [read great gatsby](https://books.allwomenstalk.com/unbelievably-great-books-to-read-if-you-loved-the-great-gatsby/)
+- [types of bookworms](https://books.allwomenstalk.com/are-you-a-bookworm-then-you-should-read-these-types-of-books/)
+- [name a book that made you cry](https://books.allwomenstalk.com/novels-thatll-make-you-cry-harder-than-the-fault-in-our-stars/)
+- [amazon books to read](https://books.allwomenstalk.com/books-from-amazons-books-to-read-in-your-lifetime/)
+- [steamy adult books](https://books.allwomenstalk.com/erotic-novels-that-will-make-you-blush-50-shades-of-pink/)
 - [7 Songs to Inspire a Happy Mood ...](https://allwomenstalk.com/7-songs-to-inspire-a-happy-mood/)
 - [5 Things to Cheer You up Today ...](https://allwomenstalk.com/5-things-to-cheer-you-up-today/)
 

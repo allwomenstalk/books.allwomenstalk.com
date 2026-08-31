@@ -162,16 +162,16 @@ Who are your fictional and real-life female role models?
 
 ## Related Posts
 
-- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
-- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
-- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
-- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
 - [riche le eye smoldering plum](https://books.allwomenstalk.com/books-thatll-inspire-you-to-make-a-new-start-in/)
-- [7 Books That Have Been Turned into Terrific TV Sho...](https://books.allwomenstalk.com/books-that-have-been-turned-into-terrific-tv-shows/)
-- [The 7 Best Books of January 2016 ...](https://books.allwomenstalk.com/the-best-books-of-january/)
-- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
-- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
 - [Want a Great Partner? Choose a Book Lover !](https://love.allwomenstalk.com/want-a-great-partner-choose-a-book-lover/)
+- [Short Story: Bookstore Meets Rockstar ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar/)
+- [Short Story: Bookstore Meets Rockstar (Part 2) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-2/)
+- [skywalker ranch library](https://travel.allwomenstalk.com/the-most-magnificent-places-to-curl-up-with-a-book/)
+- [Short Story: Bookstore Meets Rockstar (Part 3) ...](https://love.allwomenstalk.com/short-story-bookstore-meets-rockstar-part-3/)
+- [ultimate reading list](https://books.allwomenstalk.com/the-ultimate-reading-list-for/)
+- [10 Books with Epic First Chapters That'll Reel You...](https://books.allwomenstalk.com/books-with-epic-first-chapters-thatll-reel-you-right-in/)
+- [The 7 Best Books of January 2016 ...](https://books.allwomenstalk.com/the-best-books-of-january/)
+- [7 Books That Have Been Turned into Terrific TV Sho...](https://books.allwomenstalk.com/books-that-have-been-turned-into-terrific-tv-shows/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 - [7 Modern Feminism Books You Need to Read ...](https://lifestyle.allwomenstalk.com/modern-feminism-books-you-need-to-read/)
 

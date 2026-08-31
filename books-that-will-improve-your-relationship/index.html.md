@@ -36,16 +36,16 @@ Buy at [amazon.com](https://www.amazon.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [skype date](https://love.allwomenstalk.com/skype-dates-for-long-distance-relationships/)
+- [rbombed](https://love.allwomenstalk.com/everything-you-need-to-know-about-r-bombing/)
+- [idris elba girlfriends](https://love.allwomenstalk.com/a-story-about-meeting-his-new-girlfriend/)
 - [6 p's of preparation](https://love.allwomenstalk.com/6-ps-that-will-lead-you-to-finding-the-one/)
 - [test for relationship compatibility](https://love.allwomenstalk.com/ways-to-test-your-relationship-compatibility/)
+- [skype date](https://love.allwomenstalk.com/skype-dates-for-long-distance-relationships/)
+- [long distance relationship pros](https://love.allwomenstalk.com/pro-tips-that-can-save-a-long-distance-relationship/)
 - [body language in a relationship](https://love.allwomenstalk.com/what-your-body-language-reveals-about-your-relationship/)
-- [rbombed](https://love.allwomenstalk.com/everything-you-need-to-know-about-r-bombing/)
+- [how to say you're not looking for a relationship](https://love.allwomenstalk.com/how-to-tell-someone-youre-not-looking-for-a-relationship/)
 - [how to stop overthinking in a long distance relati...](https://love.allwomenstalk.com/how-to-stop-overthinking-in-your-relationship/)
 - [how to not be insecure in a relationship](https://inspiration.allwomenstalk.com/ways-to-stop-feeling-insecure-in-your-relationships/)
-- [how to say you're not looking for a relationship](https://love.allwomenstalk.com/how-to-tell-someone-youre-not-looking-for-a-relationship/)
-- [idris elba girlfriends](https://love.allwomenstalk.com/a-story-about-meeting-his-new-girlfriend/)
-- [long distance relationship pros](https://love.allwomenstalk.com/pro-tips-that-can-save-a-long-distance-relationship/)
 - [How to Have a Better Relationship ...](https://allwomenstalk.com/how-to-have-a-better-relationship/)
 - [8 Relationship Advice Tips to Make Your Relationsh...](https://love.allwomenstalk.com/relationship-advice-tips-to-make-your-relationship-stronger/)
 

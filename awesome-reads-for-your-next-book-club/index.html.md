@@ -61,16 +61,16 @@ These books are all fairly light, and should be accessible to most. If you have 
 
 ## Related Posts
 
-- [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
+- [9 Things You Should Know about the 'Divergent' Ser...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
+- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
+- [7 Conspiracy Theories You've Gotta Read to Believe...](https://lifestyle.allwomenstalk.com/conspiracy-theories-youve-gotta-read-to-believe/)
+- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
+- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
 - [7 Wonderful Kids Books That Adults Should Read ...](https://books.allwomenstalk.com/wonderful-kids-books-that-adults-should-read/)
 - [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
-- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
-- [7 Conspiracy Theories You've Gotta Read to Believe...](https://lifestyle.allwomenstalk.com/conspiracy-theories-youve-gotta-read-to-believe/)
-- [9 Things You Should Know about the 'Divergent' Ser...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
 - [7 Life-changing Reasons to Buy a Kindle ...](https://books.allwomenstalk.com/life-changing-reasons-to-buy-a-kindle/)
-- [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
-- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
 - [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
+- [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
 - [7 Massive Books for Holiday Reading ...](https://lifestyle.allwomenstalk.com/massive-books-for-holiday-reading/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

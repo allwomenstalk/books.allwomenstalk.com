@@ -182,16 +182,16 @@ So many fabulous books! Is your favorite tearjerker here? No? Tell us what it is
 
 ## Related Posts
 
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
-- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
-- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
-- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
 - [funny adult picture books](https://books.allwomenstalk.com/hysterical-picture-books-for-adults/)
+- [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
+- [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 

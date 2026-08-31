@@ -76,14 +76,14 @@ Young adult novels will always be one of my favorite genres. Which YA novels are
 
 ## Related Posts
 
-- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
+- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
 - [books from school](https://books.allwomenstalk.com/popular-books-that-have-been-banned-in-schools/)
 - [loreal le stylo shadow emerald conquest](https://books.allwomenstalk.com/contemporary-novels-that-will-blow-your-mind/)
-- [judy blume fudge series order](https://books.allwomenstalk.com/amazing-books-by-judy-blume/)
 - [healing books](https://books.allwomenstalk.com/best-books-on-healing-that-should-be-on-your-bookshelf/)
-- [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
 - [latest nicholas sparks book](https://books.allwomenstalk.com/heartwarming-books-by-nicholas-sparks/)
 - [best books on detoxification](https://books.allwomenstalk.com/inspiring-detox-books-to-check-out-this-year/)
+- [john irving children](https://books.allwomenstalk.com/memorable-characters-from-john-irvings-novels/)
+- [my favourite book little prince essay](https://books.allwomenstalk.com/reasons-why-everyone-should-read-the-little-prince/)
 - [books that every teenager should read](https://books.allwomenstalk.com/teen-novels-you-should-read-no-matter-your-age/)
 - [loreal color riche stylo smoky silver couture](https://books.allwomenstalk.com/ways-to-celebrate-world-book-day/)
 - [8 Great Book Series for Tweens ...](https://allwomenstalk.com/8-great-book-series-for-tweens/)

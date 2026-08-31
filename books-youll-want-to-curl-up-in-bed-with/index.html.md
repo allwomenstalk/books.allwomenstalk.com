@@ -76,15 +76,15 @@ Have you read any of these books that [Huffington Post](https://www.huffpost.com
 
 ## Related Posts
 
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
 - [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
 - [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
 - [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
 - [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [10 Best Books for a Winter Read ...](https://allwomenstalk.com/10-best-books-for-a-winter-read/)
 - [10 Books to Read on Cold Winter Days ...](https://allwomenstalk.com/10-books-to-read-on-cold-winter-days/)

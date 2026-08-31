@@ -56,16 +56,16 @@ I can never resist collecting powerful quotes that help bring me closer to my ow
 
 ## Related Posts
 
-- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
-- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
-- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
-- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
-- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
-- [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
-- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
-- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
 - [grey's anatomy motivational quotes](https://inspiration.allwomenstalk.com/profoundly-relatable-and-inspiring-quotes-from-greys-anatomy/)
+- [quotes when things are hard](https://inspiration.allwomenstalk.com/quotes-for-when-times-are-hard/)
+- [who is dodinsky](https://teen.allwomenstalk.com/inspiring-quotes-for-high-school-seniors/)
+- [quotes about pen and paper](https://inspiration.allwomenstalk.com/best-quotes-about-writing-to-help-you-put-pen-to-paper/)
+- [love quotes from classic literature](https://books.allwomenstalk.com/incredible-quotes-from-classic-novels/)
 - [quotes on alaska](https://books.allwomenstalk.com/brilliant-quotes-from-looking-for-alaska/)
+- [inspirational quotes star wars](https://inspiration.allwomenstalk.com/incredibly-amazing-quotes-from-star-wars-that-are-humbling/)
+- [quotes about life for teens](https://teen.allwomenstalk.com/quotes-for-teens-with-big-dreams/)
+- [best of tom haverford](https://funny.allwomenstalk.com/hilarious-tom-haverford-quotes-thatll-keep-you-laughing/)
+- [it's our choices harry potter quotes](https://books.allwomenstalk.com/uplifting-quotes-from-the-harry-potter-series/)
 - [5 Cool Quotes from Twilight ...](https://twilight.allwomenstalk.com/5-cool-quotes-from-twilight/)
 - [7 Interesting Quotes ...](https://allwomenstalk.com/interesting-quotes/)
 

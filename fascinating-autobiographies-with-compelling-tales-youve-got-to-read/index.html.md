@@ -56,15 +56,15 @@ The next time you head to the book store, head to the autobiography section. Hav
 
 ## Related Posts
 
-- [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
-- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
-- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
-- [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
-- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
 - [books to read when you feel stuck](https://books.allwomenstalk.com/inspirational-books-to-pick-up-if-youre-in-a-job-rut/)
-- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
-- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
 - [john kennedy o'toole](https://books.allwomenstalk.com/authors-who-only-wrote-one-book-but-oh-what-books/)
+- [life altering books](https://books.allwomenstalk.com/life-changing-books-everyone-needs-to-read/)
+- [7 Books You Need to Read ...](https://books.allwomenstalk.com/books-you-need-to-read/)
+- [10 Great 2013 Books for Every Book Lover ...](https://books.allwomenstalk.com/great-books-for-every-book-lover/)
+- [7 Much-Loved Books to Share with Your Child ...](https://parenting.allwomenstalk.com/much-loved-books-to-share-with-your-child/)
+- [7 Brilliant Dystopian Books Worth Checking out ...](https://books.allwomenstalk.com/brilliant-dystopian-books-worth-checking-out/)
+- [7 Awesome Reads for Your Next Book Club ...](https://books.allwomenstalk.com/awesome-reads-for-your-next-book-club/)
+- [mindy kaling jk rowling](https://inspiration.allwomenstalk.com/writers-to-look-at-for-inspiration-when-youre-in-a-rut/)
 - [9 Things You Should Know about the 'Divergent' Ser...](https://bilbr.com/things-you-should-know-about-the-divergent-series/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Memoirs I Am Dying to Read ...](https://allwomenstalk.com/7-memoirs-i-am-dying-to-read/)

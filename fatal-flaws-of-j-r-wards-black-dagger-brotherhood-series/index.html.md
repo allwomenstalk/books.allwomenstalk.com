@@ -42,15 +42,15 @@ How many times did you feel the need to do an eyeroll while reading BDB Series a
 
 ## Related Posts
 
-- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
-- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
-- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
-- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
 - [kingsley youtube](https://lifestyle.allwomenstalk.com/insanely-funny-youtube-channels-worth-subscribing-to/)
-- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
-- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
-- [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
 - [funniest phobias](https://lifestyle.allwomenstalk.com/strange-yet-interesting-phobias/)
+- [tv show from the 80s](https://movies.allwomenstalk.com/awesome-tv-shows-from-the-80s/)
+- [incredible abilities](https://health.allwomenstalk.com/people-with-amazing-abilities/)
+- [harmless crush](https://love.allwomenstalk.com/seemingly-innocent-but-dangerous-crushes-that-could-cause-trouble/)
+- [stories](https://inspiration.allwomenstalk.com/amazing-angel-stories/)
+- [justin timberlake funny moments](https://celebs.allwomenstalk.com/funniest-justin-timberlake-moments/)
+- [rugrats opposites attract](https://celebs.allwomenstalk.com/tv-bromances-that-show-the-meaning-of-friendship/)
+- [hottest asoiaf characters](https://books.allwomenstalk.com/of-my-favorite-asoiaf-characters/)
 - [comedian with a weird laugh](https://celebs.allwomenstalk.com/hilarious-stand-up-comedians/)
 - [5 Things I Liked in Breaking Dawn ...](https://twilight.allwomenstalk.com/5-things-i-liked-in-breaking-dawn/)
 - [5 Things I Love about the Twilight Series ...](https://twilight.allwomenstalk.com/5-things-i-love-about-the-twilight-series/)
