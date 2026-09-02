@@ -3,7 +3,7 @@ title: "Feed Your Imagination with a Neil Gaiman Novel ..."
 description: "The Graveyard Book; Smoke and Mirrors; The Ocean at the End of the Lane; Coraline; Stardust; More ..."
 url: "https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/"
 category: "books"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # Feed Your Imagination with a Neil Gaiman Novel ...
@@ -56,16 +56,16 @@ Are their other children's book authors that you can recommend? Feel free to sha
 
 ## Related Posts
 
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
-- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
-- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
+- [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
 - [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
 - [Great American Novel ...](https://allwomenstalk.com/great-american-novel/)
 - [15 Best Fiction Books ...](https://allwomenstalk.com/15-best-fiction-books/)
 
