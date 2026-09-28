@@ -3,7 +3,7 @@ title: "Spooky Love Stories for Women Who Love Paranormal and Romance ..."
 description: "Of Bees and Mist by Erick Setiawan; Fallen by Lauren Kate; A Discovery of Witches by Deborah Harkness; The Coldest Girl in Town by Holly Black; The Devil’s Metal by Karina Halle; More ..."
 url: "https://books.allwomenstalk.com/spooky-love-stories-for-women-who-love-paranormal-and-romance/"
 category: "books"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # Spooky Love Stories for Women Who Love Paranormal and Romance ...
@@ -181,14 +181,14 @@ Any more recommendations? Do share your favorites!
 
 ## Related Posts
 
-- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
-- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
 - [books to help with heartbreak](https://books.allwomenstalk.com/best-books-to-read-for-girls-who-are-trying-to-get-over-a-heartbreak/)
+- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
+- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
+- [best bookstores in each state](https://books.allwomenstalk.com/the-ultimate-guide-to-the-best-bookstore-in-every-state/)
+- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
 - [what does epic love mean](https://books.allwomenstalk.com/novels-about-epic-love-that-changes-the-world/)
 - [popular black writers](https://books.allwomenstalk.com/incredible-books-by-black-writers-to-read-when-you-seriously-need-to-lift-your-spirits/)
-- [best books for girlfriend](https://books.allwomenstalk.com/best-books-for-couples-to-read-together-to-build-their-bond/)
-- [inspirational books to read](https://books.allwomenstalk.com/inspirational-books-successful-women-have-read/)
-- [quirky books for adults](https://books.allwomenstalk.com/delightfully-quirky-novels-to-remind-us-all-how-strange-the-world-is/)
+- [dystopian novel set in 2540](https://books.allwomenstalk.com/dystopian-novels-perfect-for-girls-who-want-to-escape/)
 - [books for girls](https://books.allwomenstalk.com/books-all-girls-should-read-before-adulthood/)
 - [best short books](https://books.allwomenstalk.com/the-best-short-books-to-read-this-weekend-for-bookworms/)
 - [8 Romantic Movies about Older People in Love ...](https://movies.allwomenstalk.com/romantic-movies-about-older-people-in-love/)

@@ -3,7 +3,7 @@ title: "7 Famous New England Authors and Their Iconic Novels Set in the Region"
 description: "Stephen King; John Irving; Wally Lamb; Grace Metalious; Nathaniel Hawthorne; More ..."
 url: "https://books.allwomenstalk.com/amazing-authors-whose-books-feature-new-england/"
 category: "books"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 7 Famous New England Authors and Their Iconic Novels Set in the Region
@@ -75,15 +75,15 @@ There are many other writers whose books feature New England, of course, authors
 ## Related Posts
 
 - [huge eye roll gif](https://books.allwomenstalk.com/eye-roll-worthy-details-present-in-most-romance-novels/)
-- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
 - [imagination stories](https://books.allwomenstalk.com/short-stories-that-will-get-your-imagination-going/)
-- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
 - [best book to boost confidence](https://books.allwomenstalk.com/amazing-books-that-boost-self-confidence/)
-- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
-- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
 - [free text book websites](https://books.allwomenstalk.com/awesome-websites-for-free-ebooks-download-away/)
-- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [healthy books](https://books.allwomenstalk.com/great-books-about-being-healthy/)
 - [books to read with your daughter](https://books.allwomenstalk.com/classic-books-to-read-with-your-daughter/)
+- [benefits of reading science fiction](https://books.allwomenstalk.com/important-reasons-to-read-science-fiction-novels/)
+- [classic boy books](https://books.allwomenstalk.com/classic-books-to-read-with-your-son/)
+- [must read thrillers](https://books.allwomenstalk.com/must-read-crime-thrillers-for-chilly-autumn-days/)
+- [jude deveraux time travel books](https://books.allwomenstalk.com/time-travel-romances-to-pick-up-whenever-youre-in-the-mood-for-some-magic/)
 - [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
 - [7 Things I Love about NYC ...](https://travel.allwomenstalk.com/things-i-love-about-nyc/)
 

@@ -3,7 +3,7 @@ title: "10 Classic Great Literature Works Every Student Should Read ..."
 description: "Animal Farm; Fahrenheit 451; The Adventures of Huckleberry Finn; The Age of Innocence; The Crying of Lot 49; More ..."
 url: "https://books.allwomenstalk.com/classic-great-literature-works-every-student-should-read/"
 category: "books"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 10 Classic Great Literature Works Every Student Should Read ...
@@ -63,15 +63,15 @@ _amazon.com_
 ## Related Posts
 
 - [get caught reading](https://allwomenstalk.com/get-caught-reading/)
-- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
-- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
-- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
 - [e-books vs paper books](https://books.allwomenstalk.com/paper-books-vs-e-books/)
-- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 - [books to become movies](https://books.allwomenstalk.com/books-becoming-movies-in-2019/)
 - [Summer Reading: the River Cottage Meat Book](https://allwomenstalk.com/summer-reading-the-river-cottage-meat-book/)
 - [harry potter therapy](https://books.allwomenstalk.com/why-reading-the-harry-potter-books-is-like-therapy/)
 - [book that changed the world](https://books.allwomenstalk.com/books-that-changed-the-world-2/)
+- [best books on online dating](https://love.allwomenstalk.com/love-at-few-clicks-books-about-online-dating/)
+- [Don't Shop without This Book!](https://allwomenstalk.com/dont-shop-without-this-book/)
+- [Weekend Reads](https://allwomenstalk.com/weekend-reads-product-girl/)
+- [Charleston Police Officer Writes Book on Dating .....](https://allwomenstalk.com/charleston-police-officer-writes-book-on-dating/)
 - [7 Children’s Books Every Adult Should Read …](https://parenting.allwomenstalk.com/7-childrens-books-every-adult-should-read/)
 - [10 Best Children's Books ...](https://allwomenstalk.com/10-best-childrens-books/)
 

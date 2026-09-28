@@ -3,7 +3,7 @@ title: "Some Famous Books Can't Be Made into Movies ..."
 description: "One Hundred Years of Solitude; The Catcher in the Rye; Infinite Jest; A Confederacy of Dunces; What Make Sammy Run?; More ..."
 url: "https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/"
 category: "books"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # Some Famous Books Can't Be Made into Movies ...
@@ -46,15 +46,15 @@ Sources:
 ## Related Posts
 
 - [dr seuss bedtime stories](https://books.allwomenstalk.com/unforgettable-kids-books-for-bedtime-reading/)
-- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
-- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
 - [the scariest sentence i've ever read](https://books.allwomenstalk.com/novels-that-are-scarier-than-any-horror-movie/)
 - [novel dpz](https://books.allwomenstalk.com/reasons-why-youre-never-too-old-for-young-adult-fiction/)
-- [best influential books](https://books.allwomenstalk.com/influential-business-books-you-should-read-to-be-successful/)
-- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
-- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
-- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [nightstand books](https://books.allwomenstalk.com/books-you-need-on-your-nightstand-in/)
 - [2015 books](https://books.allwomenstalk.com/books-to-put-on-your-reading-list-in/)
+- [the unabridged journals of sylvia plath](https://books.allwomenstalk.com/reasons-to-read-sylvia-plath/)
+- [baby reading corner ideas](https://books.allwomenstalk.com/love-books-heres-a-reading-nook-or-27-for-you/)
+- [tudors](https://books.allwomenstalk.com/amazing-books-about-the-tudors/)
+- [literary infographics](https://books.allwomenstalk.com/best-infographics-for-all-you-writers-out-there/)
 - [7 Comic Books That Deserve to Be Movies ...](https://movies.allwomenstalk.com/7-comic-books-that-deserve-to-be-movies/)
 - [8 Books That Might Make Great Movies ...](https://movies.allwomenstalk.com/8-books-that-might-make-great-movies/)
 

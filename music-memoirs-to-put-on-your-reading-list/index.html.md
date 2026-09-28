@@ -3,7 +3,7 @@ title: "17 Music Memoirs to Put on Your Reading List ..."
 description: "Rat Girl by Kristin Hersh; Just Kids by Patti Smith; Cash by Johnny Cash; Coal Miner’s Daughter by Loretta Lynn; Life by Keith Richards; More ..."
 url: "https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/"
 category: "books"
-last_updated: "2026-09-02"
+last_updated: "2026-09-28"
 ---
 
 # 17 Music Memoirs to Put on Your Reading List ...
@@ -131,16 +131,16 @@ An amazing read, even if you aren't a music fan in any genre at all.
 
 ## Related Posts
 
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
-- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
-- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
-- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
 - [kate spade biography book](https://books.allwomenstalk.com/books-you-need-on-your-coffee-table-right-now/)
-- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [best short story anthologies](https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
+- [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
+- [books for slytherins](https://books.allwomenstalk.com/books-that-slytherins-will-love/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
+- [curled up dog tattoo](https://books.allwomenstalk.com/books-youll-want-to-curl-up-in-bed-with/)
+- [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [10 Holiday Must Reads ...](https://allwomenstalk.com/10-holiday-must-reads/)
 
