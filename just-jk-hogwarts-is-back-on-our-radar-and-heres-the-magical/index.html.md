@@ -3,7 +3,7 @@ title: "Just J/K: Hogwarts is Back on Our Radar and Here's the Magical 411 ..."
 description: "These Are Ebooks, Not Book-books; They're Part of Pottermore Presents; First up, There's “Hogwarts: an Incomplete and Unreliable Guide”; “Short Stories from Hogwarts of Power, Politics and Pesky Poltergeists” is My Favorite; “Short Stories from Hogwarts of Heroism, Hardship and Dangerous Hobbies” is All about the Heroes; More ..."
 url: "https://books.allwomenstalk.com/just-jk-hogwarts-is-back-on-our-radar-and-heres-the-magical/"
 category: "books"
-last_updated: "2026-09-28"
+last_updated: "2026-10-09"
 ---
 
 # Just J/K: Hogwarts is Back on Our Radar and Here's the Magical 411 ...
@@ -57,12 +57,12 @@ And on a truly serious note, if you love the HP universe 🌌 and still want to 
 ## Related Posts
 
 - [why did he ghost me](https://love.allwomenstalk.com/what-happens-when-mr-ghost-is-back/)
-- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
-- [riche stylo eye enchanted](https://lifestyle.allwomenstalk.com/real-life-enchanted-roses-just-like-beauty-and-the-beast/)
-- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
 - [calculus videos](https://lifestyle.allwomenstalk.com/videos-in-which-a-hot-guy-completely-covers-your-calculus-i-save-it-now/)
-- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
+- [best short series](https://movies.allwomenstalk.com/mini-series-to-binge-watch/)
+- [duplass brothers](https://celebs.allwomenstalk.com/the-time-i-met-the-duplass-brothers/)
 - [on screen kisses](https://movies.allwomenstalk.com/epic-on-screen-kisses-to-hit-you-in-the-feels/)
+- [shelly knotek movie where to watch](https://lifestyle.allwomenstalk.com/podcasts-about-true-crimes/)
+- [riche stylo eye enchanted](https://lifestyle.allwomenstalk.com/real-life-enchanted-roses-just-like-beauty-and-the-beast/)
 - [jack nicholson's birthday](https://celebs.allwomenstalk.com/lets-celebrate-jack-nicholsons-80th-birthday/)
 - [lowkey fangirling](https://celebs.allwomenstalk.com/the-stages-of-being-a-fangirl-only-hard-core-fans-can-relate-to/)
 - [provocative stories](https://books.allwomenstalk.com/a-short-story-provocative-part-one/)
