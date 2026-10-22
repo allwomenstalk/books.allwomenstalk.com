@@ -3,7 +3,7 @@ title: "7 Best Writers Who've Written Books Inspired by Paris ..."
 description: "Ernest Hemingway; Gertrude Stein; F. Scott Fitzgerald; James Joyce; Samuel Beckett; More ..."
 url: "https://books.allwomenstalk.com/best-writers-whove-written-books-inspired-by-paris/"
 category: "books"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 7 Best Writers Who've Written Books Inspired by Paris ...
@@ -58,14 +58,14 @@ So many novels and short stories from these authors, and we're not even halfway 
 
 - [how to be a better person books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-a-better-person/)
 - [tailchaser's song movie](https://books.allwomenstalk.com/amazing-books-about-cats/)
-- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
-- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
-- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
 - [spiritism book](https://books.allwomenstalk.com/best-books-about-spiritualism/)
-- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
-- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
 - [what was the most expensive book ever sold](https://books.allwomenstalk.com/of-the-worlds-most-expensive-books-ever/)
 - [male crime authors](https://books.allwomenstalk.com/great-british-crime-writers/)
+- [senior english reading list](https://books.allwomenstalk.com/books-to-read-your-senior-year/)
+- [best college libraries](https://teen.allwomenstalk.com/most-gorgeous-college-libraries/)
+- [books that make you smile](https://books.allwomenstalk.com/books-that-will-make-you-smile/)
+- [best books for late 20s female](https://books.allwomenstalk.com/great-books-for-women-in-their-20s/)
+- [eric carle childrens books](https://books.allwomenstalk.com/enjoyable-childrens-books-by-eric-carle/)
 - [9 Divine Movies Set in Paris ...](https://movies.allwomenstalk.com/divine-movies-set-in-paris/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 

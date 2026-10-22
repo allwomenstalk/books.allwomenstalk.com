@@ -3,7 +3,7 @@ title: "7 Books to Get Your Kids Interested in Travel ..."
 description: "It’s Vacation Time; Around the World in Eighty Days; All the World; How to Make an Apple Pie and See the World; Follow That Map: a First Book of Mapping Skills; More ..."
 url: "https://books.allwomenstalk.com/books-to-get-your-kids-interested-in-travel/"
 category: "books"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 7 Books to Get Your Kids Interested in Travel ...
@@ -56,13 +56,13 @@ This is just a very small selection of books that inspire kids to travel. Really
 
 ## Related Posts
 
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
 - [best novel by edith wharton](https://books.allwomenstalk.com/edith-wharton-novels-to-delve-into/)
+- [christian historical fiction male authors](https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
 - [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
 - [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)

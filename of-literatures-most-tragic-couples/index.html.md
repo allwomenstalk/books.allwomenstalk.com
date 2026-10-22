@@ -3,7 +3,7 @@ title: "7 of Literature's Most Tragic Couples ..."
 description: "Heathcliff and Catherine; Anna Karenina and Count Vronsky; Willoughby and Marianne Dashwood; Brokeback Mountain; The Hunchback of Notre Dame; More ..."
 url: "https://books.allwomenstalk.com/of-literatures-most-tragic-couples/"
 category: "books"
-last_updated: "2026-10-09"
+last_updated: "2026-10-22"
 ---
 
 # 7 of Literature's Most Tragic Couples ...
@@ -42,16 +42,16 @@ Whatever you're doing this Valentine's Day, remember that you could be haunting 
 
 ## Related Posts
 
-- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
-- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
-- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
-- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [devastating books](https://books.allwomenstalk.com/books-guaranteed-to-make-you-feel-uncomfortable/)
-- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [best books for animal lovers](https://books.allwomenstalk.com/must-read-books-for-animal-lovers/)
 - [my hockey alpha by eve](https://books.allwomenstalk.com/having-a-rough-day-books-that-are-bound-to-cheer-you-up/)
-- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
-- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
 - [teach how to draw](https://books.allwomenstalk.com/amazing-art-books-to-teach-you-how-to-draw/)
+- [authors like jhumpa lahiri](https://books.allwomenstalk.com/indian-authors-you-must-absolutely-read-this-year-even-if-you-arent-indian/)
+- [bookworm guy](https://love.allwomenstalk.com/is-your-man-a-bookworm-heres-why-hes-a-keeper/)
+- [lesser known literary sequels](https://books.allwomenstalk.com/sequels-you-wont-believe-were-written-by-different-authors/)
+- [must read best sellers](https://books.allwomenstalk.com/best-sellers-among-bibliophiles-every-intellectual-must-read/)
+- [all the best writing](https://lifestyle.allwomenstalk.com/journals-that-will-inspire-all-your-best-writing/)
+- [q&a a day 5 year journal](https://books.allwomenstalk.com/unique-paperback-books-that-allow-you-to-write-in-them/)
 - [8 Great Literary Lovers ...](https://love.allwomenstalk.com/great-literary-lovers/)
 - [7 of the Best Love Letters Ever Written ...](https://allwomenstalk.com/7-of-the-best-love-letters-ever-written/)
 
