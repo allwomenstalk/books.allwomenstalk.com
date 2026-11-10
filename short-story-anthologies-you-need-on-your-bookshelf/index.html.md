@@ -1,9 +1,9 @@
 ---
 title: "7 Short Story Anthologies You Need on Your Bookshelf ..."
-description: "Trigger Warning by Neil Gaiman; Deathbird Stories by Harlan Ellison; X Files: Trust No One by Various Authors; Everything’s Evenutal by Stephen King; Stories: All New Tales by Various Authors; More ..."
+description: "Trigger Warning by Neil Gaiman; Deathbird Stories by Harlan Ellison; X Files: Trust No One by Various Authors; Everything’s Evenutal by Stephen King"
 url: "https://books.allwomenstalk.com/short-story-anthologies-you-need-on-your-bookshelf/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Short Story Anthologies You Need on Your Bookshelf ...
@@ -70,15 +70,15 @@ Novels aren't the only thing worth reading in your spare time. There are plenty 
 
 ## Related Posts
 
-- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
+- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [cozy reads for winter](https://books.allwomenstalk.com/books-to-cozy-up-with-on-a-cold-winter-night/)
 - [list of 1950s adolescence books](https://books.allwomenstalk.com/books-set-in-the-50s-you-wont-be-able-to-put-down/)
 - [highlighted lines from books](https://books.allwomenstalk.com/the-most-highlighted-lines-in-e-books/)
-- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [bestseller books 2015](https://books.allwomenstalk.com/the-bestselling-books-from-every-woman-needs-to-read/)
-- [boy romance](https://books.allwomenstalk.com/romance-books-to-read-if-you-love-bad-boys/)
-- [commit book](https://books.allwomenstalk.com/book-series-you-have-to-commit-to/)
 - [novels set during christmas](https://books.allwomenstalk.com/read-these-novels-set-around-christmas-time/)
+- [adult coloring books at michaels](https://lifestyle.allwomenstalk.com/adult-coloring-books-you-can-enjoy-at-any-age/)
+- [books that will shatter you](https://books.allwomenstalk.com/books-that-will-shatter-your-heart-in-to-smithereens/)
 - [book themed bachelorette party](https://books.allwomenstalk.com/fun-fictional-books-about-bachelorette-parties/)
 - [7 Super-Interesting New Book Releases ...](https://lifestyle.allwomenstalk.com/super-interesting-new-book-releases/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)

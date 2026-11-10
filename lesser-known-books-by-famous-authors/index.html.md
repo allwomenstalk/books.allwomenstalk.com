@@ -1,9 +1,9 @@
 ---
 title: "Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ..."
-description: "The Last Man (Mary Shelley); The Inheritors (William Golding); The Nightingale and the Rose (Oscar Wilde); The Cat and the Devil (James Joyce); Work (Louisa May Alcott); More ..."
+description: "The Last Man (Mary Shelley); The Inheritors (William Golding); The Nightingale and the Rose (Oscar Wilde); The Cat and the Devil (James Joyce)"
 url: "https://books.allwomenstalk.com/lesser-known-books-by-famous-authors/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Lesser Known Books by Famous Authors for Girls Who Love to Read 🤓 ...
@@ -56,16 +56,16 @@ So do check out the lesser-known works by your favorite authors; you'll discover
 
 ## Related Posts
 
-- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
-- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
-- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
-- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
 - [artie bucco recipes](https://food.allwomenstalk.com/cookbooks-inspired-by-pop-culture/)
-- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
-- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [must read novellas](https://books.allwomenstalk.com/novellas-you-can-read-in-one-sitting/)
+- [best vampire romance](https://books.allwomenstalk.com/the-best-vampire-books-to-sink-your-teeth-into/)
+- [books on getting women](https://books.allwomenstalk.com/books-youre-bound-to-get-lost-in/)
+- [memoirs of musicians](https://books.allwomenstalk.com/music-memoirs-to-put-on-your-reading-list/)
 - [ikea book lover](https://books.allwomenstalk.com/fun-funky-and-insanely-clever-ways-to-display-books/)
+- [If Books Were Social Media, These Would Be the Tit...](https://books.allwomenstalk.com/if-books-were-social-media-these-would-be-the-titles/)
 - [oscar hijuelos quotes](https://books.allwomenstalk.com/books-to-cozy-up-on-the-couch-with-this-fall/)
+- [book jacquemus](https://books.allwomenstalk.com/must-start-book-series-for-college-students/)
+- [classic fairy tale books for adults](https://books.allwomenstalk.com/fairy-tale-books-for-adults/)
 - [7 Must Read Books for Teen Girls ...](https://allwomenstalk.com/7-must-read-books-for-teen-girls/)
 - [7 Underrated Authors You'll Love ...](https://allwomenstalk.com/7-underrated-authors-youll-love/)
 

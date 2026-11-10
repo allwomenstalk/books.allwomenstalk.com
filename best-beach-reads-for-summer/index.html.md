@@ -1,9 +1,9 @@
 ---
 title: "The Best Beach Reads for Summer 2018 ..."
-description: "When Life Gives You Lululemons by Lauren Weisberger; The Favorite Sister by Jessica Knoll; You Me Everything by Catherine Isaac; Dreams of Falling by Karen White; The Banker's Wife by Cristina Alger; More ..."
+description: "When Life Gives You Lululemons by Lauren Weisberger; The Favorite Sister by Jessica Knoll; You Me Everything by Catherine Isaac"
 url: "https://books.allwomenstalk.com/best-beach-reads-for-summer/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Best Beach Reads for Summer 2018 ...
@@ -65,16 +65,16 @@ What will you be reading on the beach this summer?
 
 ## Related Posts
 
-- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
-- [kid curdi](https://music.allwomenstalk.com/summer-playlists/)
 - [xvideos megan](https://travel.allwomenstalk.com/reasons-to-take-your-kids-to-a-national-park/)
-- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
 - [how to cool off quickly](https://health.allwomenstalk.com/ways-to-cool-off-on-hot-days/)
-- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/vegan-recipes-for-summer/)
-- [summer camps for adults](https://travel.allwomenstalk.com/summer-camps-for-adults/)
-- [unusual things to visit in london](https://travel.allwomenstalk.com/unusual-things-to-do-in-london/)
-- [smores ritz bitz](https://food.allwomenstalk.com/delicious-pasta-salads-for-summer/)
 - [summer day-stewart](https://lifestyle.allwomenstalk.com/of-my-favorite-things-to-do-in-summer/)
+- [site:food.allwomenstalk.com](https://food.allwomenstalk.com/vegan-recipes-for-summer/)
+- [smores ritz bitz](https://food.allwomenstalk.com/delicious-pasta-salads-for-summer/)
+- [8 glasses water](https://food.allwomenstalk.com/infused-water-recipes-for-summer/)
+- [summer camps for adults](https://travel.allwomenstalk.com/summer-camps-for-adults/)
+- [green pea pizza](https://food.allwomenstalk.com/green-pizza-recipes-perfect-for-summer/)
+- [kid curdi](https://music.allwomenstalk.com/summer-playlists/)
+- [unusual things to visit in london](https://travel.allwomenstalk.com/unusual-things-to-do-in-london/)
 - [8 Excellent Beach Cover-Ups ...](https://swimwear.allwomenstalk.com/excellent-beach-cover-ups/)
 - [Great Summer Clothes - Top 35 Picks ...](https://allwomenstalk.com/great-summer-clothes-from-clicknfunny-shop/)
 

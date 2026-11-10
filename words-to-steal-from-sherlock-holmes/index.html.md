@@ -1,9 +1,9 @@
 ---
 title: "17 Words to Definitely Steal from Sherlock Holmes ..."
-description: "Elementary; Deduce; Improbable; Trivial; Doth; More ..."
+description: "Elementary; Deduce; Improbable; Trivial; Doth"
 url: "https://books.allwomenstalk.com/words-to-steal-from-sherlock-holmes/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 17 Words to Definitely Steal from Sherlock Holmes ...
@@ -116,15 +116,15 @@ If you want others to believe that you're intelligent, you should toss these wor
 
 ## Related Posts
 
-- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
-- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
-- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
-- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
-- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
-- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
 - [funniest roses are red poems](https://funny.allwomenstalk.com/the-funniest-lines-to-use-when-dumping-him/)
-- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
 - [site:allwomenstalk.com](https://funny.allwomenstalk.com/funny-comebacks-to-catcalls/)
+- [crazy things parents text](https://funny.allwomenstalk.com/embarrassing-things-our-parents-say-over-text/)
+- [busy teacher meme](https://funny.allwomenstalk.com/the-ultimate-teachers-memes-list/)
+- [funny cleanliness quotes](https://funny.allwomenstalk.com/silly-quotes-for-ladies-who-hate-cleaning/)
+- [apocalypse jokes](https://funny.allwomenstalk.com/dad-jokes-that-will-actually-make-you-laugh/)
+- [emoji pick up lines](https://funny.allwomenstalk.com/the-biggest-pick-up-line-failures/)
+- [aussie pick up lines](https://lifestyle.allwomenstalk.com/australian-slang-terms-you-havent-heard/)
+- [how to professionally say someone is lazy](https://funny.allwomenstalk.com/the-best-comebacks-for-being-called-lazy/)
 - [recent additions to the dictionary](https://lifestyle.allwomenstalk.com/a-few-new-words-being-added-to-the-dictionary/)
 - [7 Great Acts of Kindness You Can Copy ...](https://allwomenstalk.com/7-great-acts-of-kindness-you-can-copy/)
 - [7 Words That Are Funny to Say ...](https://allwomenstalk.com/7-words-that-are-funny-to-say/)

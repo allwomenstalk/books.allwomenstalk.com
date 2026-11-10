@@ -1,9 +1,9 @@
 ---
 title: "5 Books Worth Reading This Summer ..."
-description: "Serial Monogamy - Kate Taylor; All the Light We Cannot See - Anthony Doerr; Conversion - Katherine Howe; Impulse - Ellen Hopkins; The Circle - Dave Eggers; More ..."
+description: "Serial Monogamy - Kate Taylor; All the Light We Cannot See - Anthony Doerr; Conversion - Katherine Howe; Impulse - Ellen Hopkins; The Circle - Dave Eggers"
 url: "https://books.allwomenstalk.com/books-to-put-on-your-summer-reading-list/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 5 Books Worth Reading This Summer ...

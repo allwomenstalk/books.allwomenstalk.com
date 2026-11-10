@@ -1,9 +1,9 @@
 ---
 title: "5 Current Poets You Should Be Reading ASAP ⏳ ..."
-description: "Neil Hilborn; Sabrina Benaim; TB LaBerge; Rupi Kaur; Olivia Gatwood; More ..."
+description: "Neil Hilborn; Sabrina Benaim; TB LaBerge; Rupi Kaur; Olivia Gatwood"
 url: "https://books.allwomenstalk.com/current-poets-you-should-be-reading/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 5 Current Poets You Should Be Reading ASAP ⏳ ...
@@ -38,16 +38,16 @@ Raised in both New Mexico and Trinidad, Gatwood is an active member of the slam 
 
 ## Related Posts
 
-- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
-- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
-- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
 - [charles bukowski movies](https://inspiration.allwomenstalk.com/the-laughing-heart-by-charles-bukowski/)
-- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
-- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
-- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
-- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
-- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
 - [donna tarte](https://books.allwomenstalk.com/must-read-books-in/)
+- [books hard to put down](https://books.allwomenstalk.com/books-youll-find-hard-to-put-down/)
+- [erin hanson poems book](https://inspiration.allwomenstalk.com/her-books-and-stories-by-erin-hanson/)
+- [subscription book services](https://books.allwomenstalk.com/benefits-of-a-book-subscription-service/)
+- [erin hanson author](https://inspiration.allwomenstalk.com/bookshelf-in-her-heart-by-erin-hanson/)
+- [best books about toxic relationships](https://books.allwomenstalk.com/the-most-toxic-relationships-in-literature/)
+- [best graphic novels to start with](https://books.allwomenstalk.com/best-graphic-novels-or-comic-books-for-newbies-to-the-genre/)
+- [book reading hacks](https://books.allwomenstalk.com/reading-hacks-all-bookworms-should-know/)
+- [popular romance novel authors](https://books.allwomenstalk.com/romance-authors-you-should-read/)
 - [7 Authors to Read in Translation ...](https://allwomenstalk.com/7-authors-to-read-in-translation/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

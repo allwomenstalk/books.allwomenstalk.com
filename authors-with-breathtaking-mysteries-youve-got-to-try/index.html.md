@@ -1,9 +1,9 @@
 ---
 title: "7 Authors with Breathtaking Mysteries You've Got to Try ..."
-description: "Greg Iles; Linda Castillo; James Patterson; Tess Gerritsen; John Grisham; More ..."
+description: "Greg Iles; Linda Castillo; James Patterson; Tess Gerritsen; John Grisham"
 url: "https://books.allwomenstalk.com/authors-with-breathtaking-mysteries-youve-got-to-try/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Authors with Breathtaking Mysteries You've Got to Try ...
@@ -56,16 +56,16 @@ Who’s your favorite mystery author? Give me some new books to read.
 
 ## Related Posts
 
+- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
+- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [young king of the black isles](https://books.allwomenstalk.com/wonderous-stories-from-nights/)
+- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
 - [best sharpe book](https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/)
 - [poems about ocd](https://books.allwomenstalk.com/poems-by-maggie-royer-that-you-have-to-read/)
-- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
-- [the storyteller's daughter](https://books.allwomenstalk.com/reasons-why-you-should-read-the-storytellers-daughter/)
-- [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
-- [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
+- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
 - [7 Cool Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-cool-paranormal-blogs/)
 - [7 of My Favorite Paranormal Blogs ...](https://paranormal.allwomenstalk.com/7-of-my-favorite-paranormal-blogs/)
 

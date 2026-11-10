@@ -1,9 +1,9 @@
 ---
 title: "9 Haunting Horror Novels for Kindle ..."
-description: "The Small Hand by Susan Hill; Heart Shaped Box by Joe Hill; The Man in the Picture by Susan Hill; The Strain by Guillermo Del Toro and Chuck Hogan; Warm Bodies by Isaac Marion; More ..."
+description: "The Small Hand by Susan Hill; Heart Shaped Box by Joe Hill; The Man in the Picture by Susan Hill; The Strain by Guillermo Del Toro and Chuck Hogan"
 url: "https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Haunting Horror Novels for Kindle ...
@@ -68,16 +68,16 @@ Hopefully this has given you a few titles you want to add to your Kindle wishlis
 
 ## Related Posts
 
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
 - [memoirs about schizophrenia](https://books.allwomenstalk.com/memoirs-about-mental-illness-that-youve-got-to-read/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
 - [5 Cool Vampire Books ...](https://twilight.allwomenstalk.com/5-cool-vampire-books/)
 - [9 Great Free Amazon Books for Kindle ...](https://lifestyle.allwomenstalk.com/great-free-amazon-books-for-kindle/)
 

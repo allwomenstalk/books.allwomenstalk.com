@@ -1,9 +1,9 @@
 ---
 title: "7 Terrific TED Books to Read on Your Lunch Break ..."
-description: "Would You Stay? by Michael Forster; Weekday Vegetarian by Graham Hill and Alex Estes; Beware Dangerism! by Gever Tulley; Things Don't Have to Be Complicated by Larry Smith; Cheating the Impossible by Philippe Petit; More ..."
+description: "Would You Stay? by Michael Forster; Weekday Vegetarian by Graham Hill and Alex Estes; Beware Dangerism! by Gever Tulley"
 url: "https://books.allwomenstalk.com/terrific-ted-books-to-read-on-your-lunch-break/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Terrific TED Books to Read on Your Lunch Break ...
@@ -56,16 +56,16 @@ These are some of the best TED books I have read so far. Do you have any other r
 
 ## Related Posts
 
-- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
-- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
-- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
-- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
-- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
 - [books that talk about life](https://books.allwomenstalk.com/inspiring-books-about-loving-life/)
-- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
-- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [alternative history books](https://books.allwomenstalk.com/amazing-books-on-alternate-history/)
+- [style books](https://books.allwomenstalk.com/fabulous-books-on-style/)
+- [nostalgic book series](https://books.allwomenstalk.com/vintage-books-to-make-you-nostalgic/)
+- [neil gaiman books](https://books.allwomenstalk.com/read-these-books-by-neil-gaiman-to-widen-your-imagination/)
+- [nicolas sparks books](https://books.allwomenstalk.com/lovely-books-to-curl-up-with-this-fall/)
+- [how to be happy being alone and single](https://books.allwomenstalk.com/books-about-being-single-and-happy/)
+- [are the for dummies books helpful](https://books.allwomenstalk.com/helpful-books-that-every-wannabe-writer-must-read/)
 - [films made into books](https://books.allwomenstalk.com/famous-books-that-have-proven-impossible-to-film/)
+- [too many books not enough time](https://books.allwomenstalk.com/reasons-you-can-never-have-too-many-books/)
 - [10 Books You Should Read ...](https://allwomenstalk.com/10-books-you-should-read/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 

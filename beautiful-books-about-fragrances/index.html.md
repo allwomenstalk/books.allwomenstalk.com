@@ -1,9 +1,9 @@
 ---
 title: "7 Beautiful Books about Fragrances ..."
-description: "Perfume Legends: French Feminine Fragrances – Michael Edwards, Pat Townsend; Perfumes, the a-Z Guide – Luca Turin and Tania Sanchez; The Perfect Scent: a Year inside the Perfume Industry in Paris & New York – Chandler Burr; The Perfume Lover – Denyse Beaulieu; KyotEau: Bottled Memories – Della Chuang; More ..."
+description: "Perfume Legends: French Feminine Fragrances – Michael Edwards, Pat Townsend; Perfumes, the a-Z Guide – Luca Turin and Tania Sanchez"
 url: "https://books.allwomenstalk.com/beautiful-books-about-fragrances/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Beautiful Books about Fragrances ...
@@ -56,16 +56,16 @@ I hope you will enjoy reading some of these books and they will help inspire you
 
 ## Related Posts
 
-- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
 - [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
-- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
-- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
-- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
+- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
 - [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
-- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
 - [perfume crystal bottle](https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
 - [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
+- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
+- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
+- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 

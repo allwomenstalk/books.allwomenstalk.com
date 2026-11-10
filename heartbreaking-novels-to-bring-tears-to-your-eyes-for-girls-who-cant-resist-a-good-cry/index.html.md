@@ -1,9 +1,9 @@
 ---
 title: "8 Heartbreaking Novels to Bring Tears to Your Eyes for Girls Who Can't Resist a Good Cry ..."
-description: "All the Bright Places by Jennifer Niven; Eleanor & Park by Rainbow Rowell; Looking for Alaska by John Green; Before I Fall by Lauren Oliver; Sing Me to Sleep by Angela Morrison; More ..."
+description: "All the Bright Places by Jennifer Niven; Eleanor & Park by Rainbow Rowell; Looking for Alaska by John Green; Before I Fall by Lauren Oliver"
 url: "https://books.allwomenstalk.com/heartbreaking-novels-to-bring-tears-to-your-eyes-for-girls-who-cant-resist-a-good-cry/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Heartbreaking Novels to Bring Tears to Your Eyes for Girls Who Can't Resist a Good Cry ...
@@ -102,14 +102,14 @@ A love story for this generation, Me Before You brings to life two people who co
 
 ## Related Posts
 
-- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
-- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
-- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
-- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
-- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
-- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
 - [literary classics for adults](https://books.allwomenstalk.com/classic-high-school-novels-you-should-read-again-as-an-adult/)
 - [harry potter miss](https://books.allwomenstalk.com/enticing-books-to-read-if-you-miss-the-harry-potter-series/)
+- [best book boyfriend](https://books.allwomenstalk.com/best-books-to-read-for-girls-craving-a-bad-boy-fictional-boyfriend/)
+- [top 10 life changing books](https://books.allwomenstalk.com/books-that-will-change-your-life/)
+- [pitfalls of self publishing](https://books.allwomenstalk.com/common-pitfalls-of-self-publishing/)
+- [read everything](https://books.allwomenstalk.com/benefits-of-reading/)
+- [spooky books](https://books.allwomenstalk.com/spooky-books-perfect-for-halloween/)
+- [leil lowndes goodreads](https://books.allwomenstalk.com/books-to-improve-your-relationships/)
 - [books becoming movies](https://movies.allwomenstalk.com/books-becoming-movies-in/)
 - [what to read after the hunger games](https://books.allwomenstalk.com/book-series-to-read-if-you-love-the-hunger-games/)
 - [Top 10 Books Every Woman Should Read ...](https://allwomenstalk.com/top-10-books-every-woman-should-read/)

@@ -1,9 +1,9 @@
 ---
 title: "7 of My Favorite Christian Fiction Authors ..."
-description: "Karen Witemeyer; Sarah Sundin; Mary Connealy; Tamera Alexander; Marta Perry; More ..."
+description: "Karen Witemeyer; Sarah Sundin; Mary Connealy; Tamera Alexander; Marta Perry"
 url: "https://books.allwomenstalk.com/of-my-favorite-christian-fiction-authors/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 of My Favorite Christian Fiction Authors ...
@@ -56,16 +56,16 @@ Now it’s your turn. I am always on the lookout for a new favorite Christian fi
 
 ## Related Posts
 
-- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
-- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
-- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
-- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
-- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
-- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
-- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
-- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
-- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
 - [after watched or after watching](https://books.allwomenstalk.com/reasons-why-its-okay-to-read-books-after-watching-the-movie/)
+- [literature in the 1960s](https://books.allwomenstalk.com/books-to-read-to-boost-your-knowledge-of-the-1960s/)
+- [plays by jon fosse](https://books.allwomenstalk.com/humorous-plays-that-you-should-read-for-a-laugh/)
+- [movies that came before the book](https://books.allwomenstalk.com/great-books-to-read-before-the-movie-comes-out/)
+- [authors similar to mitch albom](https://books.allwomenstalk.com/awesome-authors-i-recommend-you-read/)
+- [alice in wonderland inspired tattoos](https://books.allwomenstalk.com/best-literary-tattoos/)
+- [barbara kingsolver best books](https://books.allwomenstalk.com/books-by-barbara-kingsolver-you-need-to-pick-up-now/)
+- [best hermann hesse books](https://books.allwomenstalk.com/amazing-books-all-teenagers-should-read/)
+- [scariest book to read](https://books.allwomenstalk.com/haunting-horror-novels-for-kindle/)
+- [books for 13 yr old girls](https://teen.allwomenstalk.com/books-all-girls-should-read-as-teenagers/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 - [7 Book Series I Love ...](https://allwomenstalk.com/7-book-series-i-love/)
 

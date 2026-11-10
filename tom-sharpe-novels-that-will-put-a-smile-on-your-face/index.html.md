@@ -1,9 +1,9 @@
 ---
 title: "7 Tom Sharpe Novels That Will Put a Smile on Your Face ..."
-description: "Porterhouse Blue; Blott on the Landscape; Riotous Assembly; Indecent Exposure; Wilt; More ..."
+description: "Porterhouse Blue; Blott on the Landscape; Riotous Assembly; Indecent Exposure; Wilt"
 url: "https://books.allwomenstalk.com/tom-sharpe-novels-that-will-put-a-smile-on-your-face/"
 category: "books"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Tom Sharpe Novels That Will Put a Smile on Your Face ...
@@ -70,16 +70,16 @@ If you’re looking for a new author to try, please give Tom Sharpe a go. He mig
 
 ## Related Posts
 
-- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
-- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
-- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
-- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
-- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
-- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
 - [watch kite runner](https://books.allwomenstalk.com/reasons-you-should-read-the-kite-runner-today/)
+- [yoga for women's health](https://books.allwomenstalk.com/brilliant-books-about-yoga-for-women/)
 - [what inspires an author](https://books.allwomenstalk.com/of-my-favorite-authors-that-have-inspired-me/)
-- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
 - [guide for teens](https://teen.allwomenstalk.com/things-a-teenager-must-know-your-ultimate-teenage-survival-guide/)
+- [who is the giver in the book](https://books.allwomenstalk.com/reasons-you-should-read-the-book-before-seeing-the-giver-in-theaters/)
+- [incenstual](https://celebs.allwomenstalk.com/great-books-loved-by-celebrities/)
+- [alligator spaghetti children's book](https://parenting.allwomenstalk.com/fun-sing-along-books-that-your-kids-will-love/)
+- [dog man 13](https://books.allwomenstalk.com/influential-books-that-have-been-banned/)
+- [authors similar to ted dekker](https://books.allwomenstalk.com/christian-book-authors-to-inspire-you/)
+- [amazing autobiographies](https://books.allwomenstalk.com/amazing-autobiographies-that-deal-with-tough-issues/)
 - [7 Cool Books to Read ...](https://allwomenstalk.com/7-cool-books-to-read/)
 - [7 Books That Will Make You Cry ...](https://allwomenstalk.com/7-books-that-will-make-you-cry/)
 
